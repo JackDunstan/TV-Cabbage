@@ -1,0 +1,59 @@
+{
+  "project": "TV Cabbage archive",
+  "canonical_url": "http://www.tvcabbage.co.uk/",
+  "archive_wildcard": "https://web.archive.org/web/20260000000000*/http://www.tvcabbage.co.uk/",
+  "capture_count_reported_by_wayback": 71,
+  "capture_range": {
+    "first": "2017-05-22",
+    "last": "2026-01-03"
+  },
+  "cdx_collection": {
+    "file": "data/wayback-cdx.json",
+    "retrieved": "2026-09-11",
+    "rows": 536,
+    "unique_urls": 535,
+    "filters": [
+      "statuscode:200",
+      "mimetype:text/html",
+      "collapse:urlkey"
+    ]
+  },
+  "verified_capture": {
+    "timestamp": "20260103031041",
+    "url": "https://web.archive.org/web/20260103031041id_/http://www.tvcabbage.co.uk/",
+    "status": "html-shell-inspected",
+    "notes": [
+      "Blogger Dynamic Views template",
+      "timeslide initial view",
+      "English (United Kingdom) document",
+      "960px content frame",
+      "310px right rail",
+      "server response did not contain rendered post content"
+    ]
+  },
+  "known_endpoints": [
+    {
+      "kind": "homepage",
+      "url": "http://www.tvcabbage.co.uk/"
+    },
+    {
+      "kind": "atom_feed",
+      "url": "https://www.tvcabbage.co.uk/feeds/posts/default"
+    },
+    {
+      "kind": "rss_feed",
+      "url": "https://www.tvcabbage.co.uk/feeds/posts/default?alt=rss"
+    },
+    {
+      "kind": "blogger_profile",
+      "url": "https://www.blogger.com/profile/01166197110198447659"
+    }
+  ],
+  "url_inventory": "data/wayback-cdx.json",
+  "notes": [
+    "The CDX response is generated and ignored by Git; rerun the collector to refresh it.",
+    "The URL inventory contains HTML records, not a complete asset inventory.",
+    "Do not infer missing posts or media from the homepage shell.",
+    "Keep capture timestamps on all imported content."
+  ]
+}
