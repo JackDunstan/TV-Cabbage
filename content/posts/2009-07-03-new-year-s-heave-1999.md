@@ -1,0 +1,32 @@
+# New Year's Heave 1999
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2009-07-03T12:04:00.001+01:00`
+- Original URL: https://www.tvcabbage.co.uk/2009/07/new-years-heave-1999.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+Well, after our lovely little "local" (feel my petals daddy) party had the rug pulled out from under it, by Dave our not-so-friendly burger man at his not-so-salubrious pikey hang out in favour of the bikers, at the last minute, we were faced with the really quite attractive prospect of not having any work New Year's Eve and thus having the perfect excuse not to go out and pretend it wasn't really happening. Because, I know it's becoming a cliche among us less up for it types, but New Year's Eve really is a pile of wank, the whole hyped, over wrought, endless, commercialisation of it all. Money, money ain't a damn thing funny. So when Pendragon phoned up, re-offering us a room, we leapt at the chance and at the last hour had a booking for a portion of "trance-cash" (Copywrite Parsons).
+
+Anyway, Dave's stabbing us in the back, prefering the bikers to us, because all their mates actually buy drinks from him instead of being caught cavorting in the loos (Emily), pouring their own drinks from their own little personal bar they've brought with them in their bag (Emily, Shaun) or their audacious helping themselves to drinks from behind the bar (Wes, Pen), meant that it provided us with an excellent excuse to escape the monthly torture sesh that had become FP2. F U 2 more like, we sang through gritted teeth as we trotted off with n'er a backward glance. Missing you already! Not. 
+
+So we had to be there by 2, and despite the manipulation of unwieldy helpers into actually getting their lardy tardy arsey arses into gear and helping us shift some stuff, before they got too drunk to be of even less use than they already were, managed to get there with moments to spare. We should have taken a few more hours. Within half an hour of arriving we were unloaded in the loading bay, awaiting the lift, in the cool December air. Five hours later we were still there, and with only the slap head "Tricky Dicky" Cage and Anders for supposed light relief, that is a grim experience indeed. 
+
+Six hours later we found out The venue owner had locked the room we were meant to be in. Six hours of sitting in the bastard cold freezing the obligitory extremities off. So by the time we loaded the stuff into the lift, and carried the rig across two rooms and up two flights of stairs, all the lights had been used and there were no lights left for our room. Mind you, that is not such a rare feature at tVC parties, the lack of lights, as you would otherwise believe. 
+
+Luckily, Friendly P's new chum, the very vodka'd up sound technician who was providing half the rig, also happened to have a couple of disco lights in his monstrosity of a truck, that he duly fell down two flights of stairs to get. Later on, he threw his cup of beer at us and jeered, before turning off his rig, and stumbling from the room. But he sorted us right out with those lights.
+
+By now Cagey and Anders were making little sense and had gone off to the river, with a mumbling Mary. Phew, we could relax, so quickly tucked into the bottle of vodka that Cagey hadn't given us any money for (so no change there then).
+
+Instead of being in our normal room, just off the main room and to the side, we were in a new part of the building that had been opened up especially for the night. This was the biggest Pendragon, ever, at the Theatre Factory, in fact it was yet another huge Millenium party that was part of hundreds up and down the country. 'If everyone's putting on a party, and they're all bigger than ever, and everyone we know is going to quiet ones in friends homes or down to the Thames, where are they going to get the people to fill this?' we asked ourselves as we took in the sheer scale of it all, and balked at the thought of the organisation it would take to do something on such a massive scale. 
+
+By now everything in the main room was hotting up, most rapidly. With young trance maidens kitted out in french maid's outfits, complete with feather dusters, and not so young trance meisters, tops off, chins gurning most alarmingly, we retreated to the relative mundanity of our dark and deep room and tried to establish a vibe. By now a few chums had arrived, including Alex and Marcus and Pete and Jane, and with the others still down by the river watching the firework display, we all threw caution to the wind and celebrated, even though our room seemed to be scaring away all those braver tranced out peeps that ventured to put their heads round the door. Still, vodka'd to the hilt, we carried on regardless, untill eventually by sheer perseverance, and by virtue of the fact we were probably the only room in the building that did not have pierced male nipples on display, a little gathering was soon established.
+
+TAK arrived, near midnight, with gels in tow, Ed and Stevie Vincent. Scouse had fallen asleep, and no one had woken him up and we all laughed merrily at the thought of all the 'werk' he was missing. They were off after their set to DiY's party in Peterborough and played a suitably deep and dirty set, before getting in their cars and setting off oop north. We later heard that they'd got there just as it was finishing, with a suitably refreshed Scouse, only to find their car broken down when they tried to go home. Ouch. Long come down boys.
+
+Things bumped along merrily enough for a few hours. Nick fell into a drunken stupor and Chloe made her a lovely little bed out of peoples coats to lie on, even though she had been called Zoe all night, in the most annoyingly repetitive manner. 
+
+And yes, after it was all over, and we'd kidnapped poor Paul and Chloe to take them home with us, just as we neared Chavland, birth place of all things Fav, that fucking van did break down. Again. "Don't worry, it's only a flat tyre", reassured Dicky, although once he discovered that there was no jack, or tools of the most basic description, even his dumb willingness to belief in the van's ability to ever get us anywhere without breaking down, began to crumble a tad. Anyway, we all sat in the van and let him sort it out. Which he did eventually, and 36 hours after we left Whitstable, we were back. Tired, dishevelled, hung over, but a few quid richer.

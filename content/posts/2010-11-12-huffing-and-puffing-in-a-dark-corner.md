@@ -1,0 +1,46 @@
+# huffing and puffing in a dark corner
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2010-11-12T12:01:00.001+00:00`
+- Original URL: https://www.tvcabbage.co.uk/2010/11/huffing-and-puffing-in-dark-corner.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+Been off the old blogosphere for a few weeks due to illness. Had more surgery on my detached retina, the fourth operation, and am just getting back round to joining life again and writing some more blog entries, or as Jenny Boo would call it; some “self indulgent, right up your own arse, rambling lies”.
+
+BJ and Nicky make an effort
+
+First up, at the end of October, was Brummy Jon’s moving in party. 
+
+“You’ve got to come”, he says.
+
+“I can’t mate. Just had my operation and don’t want to walk around with a patch on my eye attracting undue attention and having to explain my eye story 50 times to 50 different people throughout the night”.
+
+“You won’t stand out”, he declares. “The party is fancy dress and the theme is zombie-pirate so everyone will have a patch or make-up or whatever”.
+
+I agree so C, dear C, fashions me a pirate eye patch from a plastic one the hospital provided covering it in black felt and putting elastic around it. I wore a Bretton style shirt and my sailor coat. Not much of an effort I know as regular readers will be more than aware of my somewhat party pooping attitude towards fancy dress. To blend in I stood with the sailor girls for the better part of the early evening.
+
+I know it’s society giving permission for various wardrobal malfunctional infactions; it’s giving a chance to people who love to express their creativity, it’s a chance to be whoever you want to be, including cross dressing; it’s something you can share with a partner, a chance for sometimes serious people to be just silly. Life is, after all, too short and fleeting and self-expression is an important aspect of life. 
+
+Fancy dress obviously annoys some people, like myself, and that can be fun too. As Seinfeld once said, maybe about fancy dress, have a go “because you’ll never improve your sense of style if your default look is “I give up”, which mine is. Because parties are a time to celebrate. You can be the change you want to see in the world. Everyone else can follow your fabulous lead. Darling. 
+
+Here’s a good one from Fashion Tips; “Because dressing up helps you make fashion mistakes and get past them.” Nope never got past that one. I’m one big fashion mistake. Another; “Because it’s a test of your confidence. Dressing unconventionally forces you to develop the self-assurance necessary to stand out from everyone else.” Looking at it through that lens I do not have the self-assurance nor motivation to dress up. Now why is that? Now that I’ve found a way in to some self-introspective naval gazing I feel a lot happier now. Analysing my own unhappiness, now that makes me happy.
+
+If you’ve got it flaunt it. I ain’t got it so I don’t flaunt it. If by ‘it’ they mean great style, killer confidence, amazing legs then it’s a sorry ‘no’ from me. 
+
+Falstaff; 
+
+said to have joie de vivre
+
+Maybe, on my part, it is a lack of joie de vivre, "the joy of living". People do say to me ‘cheer up’ a lot. I have joie de vivre but not enough joy to make or hire a fancy dress costume. Joie de vivre "can be a joy of conversation, joy of eating, joy of anything one might do… And joie de vivre may be seen as a joy of everything, a comprehensive joy, a philosophy of life, a Weltanschauung. Robert's Dictionnaire says joie is ‘sentiment exaltant ressenti par toute la conscience’, that is, involves one's whole being." (1) I really need to get over this somehow. Any suggestions? Maybe wearing fancy dress in an inappropriate situation? Making an effort? Relaxing? Dispelling some self-aware awkwardness and embarrassment? Fan the ever-growing costume hire business takings? Cultivate a DIY philosophy of making my own costumes?
+
+“Everyone will be looking to the host for inspiration, so as such it’s essential that they put proper time and effort into their fancy dress costume”; and he sure did. BJ, resplendent in a pirate costume of such avuncular ostentation that even a disillusioned old cynic like myself could do nothing but smile and begin to warm to the fact that this particular form of self expression largely comes down to the simple fact that fancy dress parties are one of the best ways to relax and unwind. In the ‘current climate’, not too much politics in the old blog this week, people are always looking for ways to have fun, and it doesn’t get much more fun that dressing up in outrageous clothes. It allows people to let their hair down and enjoy themselves, and what could be better than that? By then though my second, rather large, dark rum and coke was kicking in nicely and my painful eye throbs were receding in the rear view mirror at a pace that even scared me. 
+
+By the time I came round from the first spliff I’d smoked for a month – huffing and puffing in a dark corner, looking rather ashen faced, eye patch on, with Jenny P on one side of me and the lovely Helene on the other shouting “Oz is having a whitey” to everyone that passed – I just had time really to find a nice sitty down spot in the tent, by the bar, next to Rosie in her cracking fancy dress costume, before The Zedheads got on stage and played a great chilled set of old and new songs before the pain kicked in again and I really had to go home at 1am for another pain killer administration session. 
+
+Still, was nice to get out for the first time in weeks and I hope everyone had a jolly good knees up. Thanks BJ for a great if short, on my part anyway, party. Really had a good time while I was there. You’re the man!
+
+(1) Humor Reference Guide: A Comprehensive Classification and Analysis by Warren Shibles.

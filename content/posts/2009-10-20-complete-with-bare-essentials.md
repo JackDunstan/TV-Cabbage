@@ -1,0 +1,22 @@
+# Complete with bare essentials
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2009-10-20T11:05:00.003+01:00`
+- Original URL: https://www.tvcabbage.co.uk/2009/10/complete-with-bare-essentials.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+Yeees! A complete, whole party, from beginning to end without any interruptions, what-so-ever from Her Maj’s buoys. Excellent site, farking soo-perb music and top notch company made for a far out experience, maan. To be held in the bosom of an English Wood in the middle of summer, miles from anywhere is a unique experience. Where do you get clubs with such decor? I’ll tell ya. Nowhere. The police can fuck off the formerly well established free festival circuit but this is the 90’s now and, fragmented though the scene is, it’s still here. You just have to go go a little bit more underground to find to find the action these days. The Mother was just conceived to take the piss. Thousands of gatherings have happened. You just don’t read about them anymore.
+
+Complete with all the bare essentials for a free party (a hundred or so dedicated dancing freaking misfits, a rig, lights courtesy of the renegade TB crew, a few core DJ’s and a large fridge full of booze) the picaresque pines of Barham Woods in Kent’s summer lush countryside beckoned (thanks Nick) for a dance till 10am tVC party. All we did was enjoy.
+
+Set to meet in a local pub at two hours notice a convoy snaked through the narrow lanes. Rendezvousing a mile down inside the wood we set about the serious business of releasing the week long pent up frustrations caused by 20th Century, western, industrialised capitalist societies pressures to stay alive. Not a sight very young children or nervous animals would take to.
+
+However, after a sleepless night of hedonistic excess dancing and talking ourselves into a frenzy of lushousness what was needed was a little bit of dust free luxury.
+
+Chill sesh 2 at the Woodpeckers beckoned. Here we set up a bigger rig (thanks Maurice the Magnificent) got the pints in and proceeded to sprawl in a half dazed, semi comatosed manner till we got sick of it and went home. DJ’s playing at both parties included Sherlock (can’t get enough of it), Jes (keeping it neat despite swigging unknowingly from Hazels, er, fungal brew), Jasper (tarty git on and off the decks), Oz (dusty and fried with his IQ halved by something), Nicki (Bareham only but still a succulent slice of DJhood). Al Jay (Woodpeckers only but over from, hey, San Fran and playing a bit of a blinder of a deep US groove jobby), Ed and Liam (“We’re doing the last hour” doing, er, the last hour) and last but not least Kier and Tom, missing out on a play altogether for some reason.
+
+Two guys who muscled in on Al Jays set were spotted behind the dex at the Graveney free party t’other week. Our chum Theo, who just happens to be black, went up to these two and tried to make conversation with them. “Nice tunes man”, he begins. “YEH”, they reply, “white tunes” and give him a fist salute.

@@ -1,0 +1,48 @@
+# TV Catch Up with tVCabbage… Glee, True Blood Season 3, Panorama, Twenty Twelve, The Secret War On Terror, Mrs Brown’s Boys .
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2011-03-22T10:44:00.001+00:00`
+- Original URL: https://www.tvcabbage.co.uk/2011/03/tv-catch-up-with-tvcabbage-glee-true.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+Don't you get sick of the anti-TV brigade saying that TV is shit, yet they never watch any programmes? I do. If they watch one show they should watch Glee. It will, indeed, confirm their worse fears.
+
+This weeks TV digest begins with Glee. Don’t know why I like it? On the surface it’s everything you want to hate; cheesy songs, indeed songs, crass stereotypes, garish colours. It’s tender, mawkish sentimentality all based on, you know, the kids, doing it, like a team (bangs fist on chest and holds back the welling tears), learning to cooperate and tolerate and celebrate each others differences, it kinda, like, gets to you. Relationship models you can aspire to? 
+
+Pass the Kleenex. To wipe away my credulity-strained tears of snarky, satirical laughter as the ironically manicured cliched-parade of procedural conformity is shot down by hilariously mean-spirited Sue Sylvester. "Your delusions of persecution are a telltale sign of early stage paranoid schizophrenia". Indeed. "I'm going to ask you to smell your armpits. That's the smell of failure, and it's stinking up my office."
+
+Brian Cox’s show Wonders of the Universe is brilliant in high definition. This guy explains how the universe works. What’s not to like? He uses the funeral rites at Shiva’s Temple and the beliefs of the Hindus in the cycle of destruction and creation and think reincarnation comes through death and rebirth and how elements of the body are recycled in the next stage of creation as a spring board metaphor to his own creation story which is the history of the universe. The path to enlightenment is not an understanding of our own lives and deaths but the life and death of the stars. Every atom in the universe, including ours, came from inside a star. 
+
+Now, anyone who can articulate that on prime time, with the help of great graphics, gets my vote. Didn’t really notice the hoo-ha in the papers recently about the soundtrack to this show getting complaints from viewers but the sound track adds ambiance and depth to the show. Sometimes it goes all Kubrick’s 2001 'A Space Odyssey' on us, or over eggs it a bit, and some times his sense of indy kid wonder gets a tad cloying but getting complex ideas across is a skill he has. 
+
+The BBC has decided to re-edit the soundtrack and remove or turn it down. Shame I’m with Coxy on this one; it’s not a lecture it’s a cinematic experience. The bigger the TV the better it rocks my universe. All 92 elements of it. 
+
+True Blood Season 3, one big undead sex party, continues it’s relentless satirical journey to camp-land Louisiana as the vampires swim in the gizzards. Sookie and Bill removing dead bodies from the living room carpet; just like a normal couple. "So you fell in love with a serial killer - in this town who hasn't?"
+
+Lafayette finding love. We know it’s all going to end in tears don’t we? 
+
+That Vampire Authority strutting around thinking they can do anything they want, straight backs like something from Nazi Germany via the Death Star, all tight fitting black leather uniforms and cock eyed frowns straight to camera. 
+
+Scary SS wolves are being being hunted by the "cor he's really fit" (copyright DJ Rosie 2011) Eric. He nearly got them in 1944 and has held a beef for almost 1000 years. That’s unforgiving for you. 
+
+The shows soapy, complicated and viciously dysfunctional relationship Gumbo surprising at every turn. All revolving around Sookie. What is she we all wonder? 
+
+Panorama exposed the dark arts of the tabloid hacks and confirming their duplicitous ‘it’s just one rogue journalist’ lie. Getting this kinda shit out on primetime is so important. Phone hacking is the endemic surface scum on the bathtub of intrusion. Subterfuge and deceit, secret cameras and recorders, accessing bank accounts, health records, phone accounts, DVLA records, the use of corrupt police, private detectives willing to break the law, computer hacking; all illegal, all in disregard of privacy law. 
+
+Every time we buy a tabloid newspaper we condone this type of behaviour. They want to increase circulation by any means. Not ‘one rogue reporter’ but a whole rogues gallery sucking on the money cock.
+
+Twenty Twelve, a new comedy from the BBC, has it’s own rogues gallery of familiar faces; Rev’s wife, you know, thingy from Peep Show; she’s in it. Her from Spaced. Juliette. Him from that drama show that was on recently and was quite good. Downton Abbey. Some guy who was in something else but now has a moustache and I can’t remember his name. 
+
+Anyway, it’s about the 2012 games people getting ready for the Olympics with hilarious consequences. Ticks all 'The Thick Of It' boxes (such as inept boss, selfish chancers winging it, shakey hand held camera, fake 'The Office' style documentary and 'Little Britain'-esque fake-serious voice over), except two that is; it’s not that funny and there’s no swearing. I’ll give it one more episode though just to confirm it’s not going to creep up and be a cult hit behind my back.
+
+At last some decent swearing, but only because swearing is funny. Mrs Brown’s Boys take on things reminds me of the old Hilda Baker schtick from the 60’s and 70’s. In drag. And ruder. Oh look, he’s plays a mature middle-aged mother who starts off the show fekking this and fekking that and before you’re 10 minutes in it’s fucking swearing away like billio. It’s filled with hilarious knob gags such as “if it can fit in one hand you can fekking keep it” and “how would you like me to grab your willie like a windmill and swing you round the room?” It's one big overacted Ray Cooney theatrical farce that thrive on it’s script errors, corpsing in front of the live audience and ad libing it’s way out of trouble. Haven’t seen such a blatant gay stereotype since Mr Humphrie’s stroked Mrs Slocome’s pussy. All men are childish idiots but, in a 'funny' way, it has old fashioned charm. It’s massive in Ireland you know but it ain’t no Father Ted. Best joke; “I was so long in labour they had to shave me twice.”
+
+The Secret War On Terror, a two part documentary, revealed how totally unprepared the American intelligence agencies were after the shock of the 9/11 attacks by Al-Qaeda. The shoe bomber Richard Reed, Al-Qaeda trained and a British Muslim to boot panicked the hunt for Osama Bin Laden. In Pakistan 6 months after 9/11 they captured one of Osama’s top lieutenants Abu Zubeyda; it was their first big breakthrough. Interrogation raised questions about how far America should go to gain intelligence. Documents found at his safe house proved he was the gate-keeper for the Jihadi training camps and this prompted his removal to a black site, or clandestine prison, in Thailand. A Muslim FBI officer using standard FBI interrogation techniques got Abu Zubeyda to identify Khalid Sheikh Mohammed as ‘Mukhtar’ the mastermind of 9/11. He wasn’t even on their radar. 
+
+By now standard interrogation techniques were out the window. In May 2002, in cooperation with the CIA, the FBI caught two ‘clean’ potential ‘dirty’ bombers boarding a plane out of Pakistan. One was an American the other a Brit. In Pakistan the Brit Binyam Mohamed said he was hung by his wrists, beaten with a leather strap and subject to a mock execution. MI5 was aware he was being tortured. In 2002 America, the self proclaimed beacon of freedom and democracy, opened Camp X-Ray in Cuba. Chosen because it was outside US jurisdiction, outside the protection of the Geneva Convention, overnight dismantling 50 years worth of human rights infrastructure. A new generation of secret interrogators were trained to get results any way they could. They used hooding, total sensory deprivation, nudity, physical force and ‘enhanced interrogation techniques’. This involved a confinement box in which the suspect was strapped naked to a chair in the frigid cold and left for 3 weeks at a time; they were sleep deprived then confined in ‘the dog box’ in total darkness, which was covered with blankets to stop air getting in and to raise the heat. The CIA implemented ‘the programme’ – secret rendition, black sites and interrogation – and an ancient and terrible form of torture used by the Spanish Inquisition and the Khmer Rouge; waterboarding. All details available from secret CIA reports.
+
+After the Bali bombing of 2002 Donald Rumsfeld authorised the military to use slapping, dogs, stress positions, 20 hour interrogations, women’s underwear placed on his head, fingernail pulling, cigarette burning and interrogation techniques used in the TV show 24 on Detainee 63 believed to be the 20th 9/11 highjacker. Info obtained by these methods? ‘Drivel’, unreliable and confusing. Conclusion? The US drawn into the realm of abduction and torture; the Brits into allegations of complicity. Torture radicalises, is damaging to the West and cannot be justified in a democratic society.

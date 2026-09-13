@@ -33,6 +33,24 @@
   },
   "known_endpoints": [
     {
+      "kind": "earlier_blogspot_publication",
+      "url": "https://tvcabbage.blogspot.com/?m=1",
+      "feed_url": "https://tvcabbage.blogspot.com/feeds/posts/default?alt=json&max-results=500",
+      "snapshot_file": "data/blogspot-feed-2026-09-13.json",
+      "homepage_snapshot": "data/blogspot-homepage-mobile-2026-09-13.html",
+      "pages_feed_snapshot": "data/blogspot-pages-feed-2026-09-13.json",
+      "comments_feed_snapshot": "data/blogspot-comments-feed-2026-09-13.json",
+      "favicon_snapshot": "docs/assets/source/blogspot-favicon.ico",
+      "retrieved": "2026-09-13",
+      "readable_posts": 101,
+      "static_pages": 0,
+      "comments": 1,
+      "published_range": {
+        "first": "2005-01-12",
+        "last": "2007-09-10"
+      }
+    },
+    {
       "kind": "homepage",
       "url": "http://www.tvcabbage.co.uk/"
     },
@@ -50,6 +68,13 @@
     }
   ],
   "url_inventory": "data/wayback-cdx.json",
+  "later_blogger_feed": {
+    "blog_id": "8764520575762950118",
+    "snapshot_file": "data/tvcabbage-co-uk-feed-2026-09-13.json",
+    "retrieved": "2026-09-13",
+    "entries": 430
+  },
+  "readable_record_count": 531,
   "notes": [
     "The CDX response is generated and ignored by Git; rerun the collector to refresh it.",
     "The URL inventory contains HTML records, not a complete asset inventory.",

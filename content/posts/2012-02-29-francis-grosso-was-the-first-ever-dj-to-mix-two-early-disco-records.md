@@ -1,0 +1,80 @@
+# Francis Grosso  was the first ever DJ to mix two early disco records
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2012-02-29T15:46:00.001+00:00`
+- Original URL: https://www.tvcabbage.co.uk/2012/02/house-from-gay-black-americans-to-pasty.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+By 1981 they declared that disco was dead and there were no more up tempo dance records. That’s when I realized I had to start changing things to keep feeding my dance floor - Frankie Knuckles
+
+Although some house aficionados will refuse to admit it, the development of house music has much of its success accredited to the rise and fall of disco. As a result, to appreciate the history of house music we need to look further back than the 1980s and the development of the TR909 and TR808 drum machines; we also need to examine the growth of disco during the 1970s.
+
+This is because disco still forms a fundamental part of some of today’s house music and in many instances older disco records have been scrupulously sampled to produce the latest house tracks.
+
+Pinning down an exact point in time where disco first appeared is difficult, since a majority of the elements that make disco appeared in earlier records. Nonetheless, arguably it is said to have first originated in the early 1970s and was derived from the funk music that was popular with black audiences at that time. Some big name producers such as Nile Rodgers, Quincy Jones, Tom Moulton, Giorgio Moroder and Vincent Montana began to move away from recording the self composed music, and started to hire session musicians and produce hits for artists whose only purpose was to supply vocals and become a marketable commodity.
+
+Diana Ross became one of the first disco manufactured success stories with the release of Love to Love You Baby in 1975, believed by many to be the first disco record to hit and be accepted by the mainstream public. This ‘new’ form of music was still in its infancy, however, and it took the release of the motion picture Saturday Night Fever in 1977 before it eventually became a widespread phenomenon. Indeed, by the late 1970s over 200 000 people were attending disco- theques in the UK alone and disco records contributed to over 60% of the UK charts.
+
+As with most genres of music that become popular, many artists and record labels jumped on the wave of this new happening vibe and it was soon deluged with countless disco versions of original songs and other pointless, and poorly produced, disco records as the genre became commercially bastardized. As a result, disco fell victim to its own success in the late 1970s and early 1980s, with the campaign of ‘disco sucks’ growing ever more popular. In fact, in one extreme incident Steve Vahl, a rock DJ who had been against disco from the start, encouraged people to bring their disco collections to a baseball game on 12 July 1979 for a ritual burning.
+
+After the game, a huge bonfire was lit and the fans were asked to throw all their disco vinyl ontothe fire.
+
+By 1981, disco was dead, but not without first changing the entire face of club culture, changing the balance of power between smaller and major labels, and preparing the way for a new wave of music. Out of these ashes rose the phoenix that is house, but it had been a large under- ground movement before this and, contrary to the misconceptions that are spread around, it had actually been in very early stages of evolution before disco hit the mainstream.
+
+Although to many Frankie Knuckles is seen as the ‘godfather’ of house, it’s true foundations lie well before and can be traced back to as early as 1970. At this time, Francis Grosso, a resident DJ at a converted church known as the Sanctuary, was the first ever DJ to mix two early disco records together to produce a continual groove to keep the party-goers on the dance floor.
+
+What’s more, he is also believed to be the first DJ to mix one record over the top of another, a technique that was to form the very basis of dance music culture.
+
+Drawing inspiration from this new form of mixing, DJ Nicky Siano set up a New York club known as The Gallery, and hired Frankie Knuckles and Larry Levan to prepare the club for the night by spiking the drinks with lysergic acid diethylamide (LSD/Acid/Trips). In return he taught both all about the basics of this new form of mixing records, and soon after they moved on to become resident DJs in other clubs. Levan began residency at The Continental Baths, while Knuckles began at Better Days, to soon rejoin Levan at The Continental Baths 6 months down the line. The two worked together until 1977, when Levan left the club to start his own and was asked to DJ at a new club named The Warehouse in Chicago. Since Levan was now running his own club he refused, but recommended Knuckles, who accepted the offer and promptly
+
+moved to Chicago.
+
+Since this new club had no music policy, Knuckles was free to experiment and show off the techniques he’d been taught by Nicky Siano. Word quickly spread about this new form of disco and The Warehouse quickly became the place to be for the predominantly gay crowd. Since no ‘house’ records actually existed at this time, the term house did not refer to any particular music, but simply referred to The Warehouse and the style of continual mixing it had adopted.
+
+In fact, at this time the word ‘house’ was used to speak about music, attitudes and clothing. If a track was house it was from a cool club and something that you would never hear on a commercial radio station, whereas if you were house it meant you attended all the cool clubs, wore the ‘right’ clothing and listened to ‘cool’ music.
+
+By late 1982/early 1983, the popularity of The Warehouse began to fall rapidly as the owners began to double the admission price as it became more commercial, so Knuckles decided to leave and start his own club known as The Powerhouse. His devoted followers went with him, but in retaliation The Warehouse was renamed The Music Box and the owners hired a new DJ
+
+named Ron Hardy. Although Hardy wasn’t a doctor he dabbled in numerous pharmaceuticals and in turn was addicted to most of them, but was nonetheless a very talented DJ. While Knuckles kept a fairly clean sound, Hardy pounded out an eclectic mix of beats and grooves, mixing euro disco, funk and soul to produce an endless onslaught to keep the crowd up on the floor. Even to this day, Ron Hardy is viewed by many as the greatest ever DJ.
+
+Simultaneously, WBMX, a local radio station, also broadcast late night mixes made by the Hot Mix Five. The team consisted of Ralphi Rossario, Kenny ‘Jammin’’ Jason, Steve ‘Silk’ Hurley, Mickey ‘Mixin’’ Oliver and Farley ‘Jackmaster’ Funk. These DJs played a non-stop mixture of British New Romantic music, ranging from Depeche Mode to Yazoo and Gary Numan, along
+
+with the latest music from Kraftwerk, Yello and George Clinton. In fact, so popular was the UK New Romantic scene that a third of the American charts consisted of UK music.
+
+However, it wasn’t just the music that the people tuned in for, it was the mixing styles of the five DJs. Using techniques that had never been heard of before, they would play two of the same records simultaneously to produce phasing effects, perform scratches and back spins, and generally produce a perfect mix from a number of different records. Due to the show’s popularity, it was soon moved to a daytime slot and kids would skip school just to listen to the latest mixes. In fact, it was so popular that Chicago’s only dance music store, ‘Imports Etc’, began to put a notice-board up in the window documenting all the records that had been played the previous day to prevent them from being overwhelmed with enquiries.
+
+Meanwhile, Frankie Knuckles was suffering from a lack of new material. The ‘disco sucks’ campaign had destroyed the industry and all the labels were no longer producing disco. As a result, he had to turn to playing imports from Italy (the only country left that was still producing disco) alongside more dub influenced music. More importantly for the history of house, though, he
+
+also turned to long-time friend Erasmo Rivieria, who was currently studying sound engineering, to help him create reworks of the earlier disco records in an attempt to keep his set alive. Using reel-to-reel tape recorders, the duo would record and cut up records, extending the intros and breakbeats and layering new sounds on top of them to create more complex mixes. This was soon pushed further as he began to experiment by placing entirely new rhythms and bass lines underneath familiar tracks. While this undeniably began to form the basis of house music, no one had yet released a true house record, and in the end it was Jesse Saunders’ release of On And On in 1984 that landmarked the first true house music record.
+
+Although some aficionados may argue that artist Byron Walton (a.k.a. Jamie Principle) produced the first house record with just a portastudio and a keyboard, the track entitled Your Love was only handed to Knuckles for him to play as part of his set. Jesse Saunders, however, released the track commercially under his self-financed label ‘Jes Say’ and distributed the track through Chicago’s ‘Imports Etc’.
+
+The records were pressed courtesy of Musical Products, Chicago’s only pressing plant, owned and run by Larry Sherman. Taking an interest in this scene, he investigated its influence over the crowds and soon decided to start the first ever house record label ‘Trax’. Simultaneously, however, another label ‘DJ International’ was started by Rocky Jones, and the following years involved a battle between the two to release the best house music. Many of these consisted of what are regarded as the most influential house records of all time, including Music is the Key, Move Your Body, Time to Jack, Get Funky, Jack Your Body, Runaway Girl, Promised Land, Washing Machine, House Nation and Acid Trax.
+
+By 1987 house was in full swing; while still borrowing heavily from 1970s disco, the introduction of the Roland TB303 bass synthesizer, along with the TR909, TR808 and the Juno 106, had given house a harder edge as it became disco made by ‘amateur’ producers. The basses and rhythms were no longer live but recreated and sequenced on machines, resulting in a host of 303-driven tracks starting to appear.
+
+One of these budding early producers was Larry Heard, who after producing a track entitled Washing Machine released what was to become one of the most poignant records in the history of house. Under the moniker of Mr Fingers, he released Can U Feel It, the first ever house record that didn’t borrow its style from earlier disco. Instead, it was influenced by soul, jazz and the techno that was simultaneously evolving from Chicago. This introduced a whole idea to the house music scene as artists began to look elsewhere for influences.
+
+One of these was Todd Terry, a New Yorker and hip-hop DJ. He began to apply the sampling principles of rap into house music. By sampling drum loops from old records and layering them together, he introduced harsher and heavier rhythms into the scene and released. Three Massive Dance Floor House Anthems, which pushed house music in a whole new direction. His
+
+subsequent house releases brought him insurmountable respect from the UK underground scene and he has duly been given the title of Todd ‘The God’ Terry.
+
+Over the following years, house music mutated, multiplied and diversified into a whole number of different subgenres, each with their own names and production ethics. In fact, to date there are over 14 different subgenres of house, consisting of progressive house, hard house, deep house, dark house, acid house, Chicago house, UK house, US house, Euro house, French house,tech house, vocal house, micro house and disco House.
+
+Musical analysis
+
+The divergence of house music over the subsequent years has resulted in a genre that has become hopelessly fragmented and as such cannot be easily identified as featuring any one particular attribute. Indeed, it can be funky, drawing its inspiration from disco of the 1970s; it can be relatively slow and deep, drawing inspiration from techno; it can be vocal, it can be party-
+
+like or it can simply be pumping. In fact, today the word house has become somewhat of a catch-all name for music that is dance (not pop!) yet doesn’t fit into any other dance category.
+
+The good news with this is that you can pretty much write what you want and as long as it has a dance vibe it could appear somewhere under the house label. The bad news, however, is that it makes it near impossible to analyse the genre in any exact musical sense and it is only possible to make some very rough generalizations.
+
+Firstly, we can safely say that house music invariably uses a 4/4 time signature and is produced either allegretto or allegro. In terms of physical tempo, this can range from a somewhat slow (by today’s standards) 110BPM to a more substantial 140BPM, but many of the latest tracks seem to stay around the 127 or more recently 137 ‘disco heaven’ BPM. This latter value is referred to as such since this is equal to the average clubber’s heart rate while dancing, but whether this actually makes the music more ‘exciting’ in a club has yet to be proven.
+
+Fundamentally, house is produced in one of three ways: everything is sampled and rearranged; only some elements are sampled and the rest is programmed; or the entire track is programmed in MIDI. The approach taken depends entirely on what style of house is being written. For example, the disco house produced by the likes of Modjo, Room 5 and Daft Punk relies heavily on sampling significant parts from previous disco hits and dropping their own vocals over the top (Daft Punk’s Digital Love and Modjo’s Lady being prime examples). If you write this style of music then this is much easier to analyse, since it’s based around the disco vibe. Generally, this means that it consists of a four-to-the-floor rhythm with a heavily syncopated bass line and the characteristic electric wah guitar. On the other hand, deep house uses much darker timbres (deep bass lines mixed with atmospheric jazzy chords) that don’t particularly exhibit a happy vibe but are still danceable, while acid house relies heavily on the squawking TB303. In fact, while all house music will employ a four-to-the-floor pattern, the instrumentation used will often determine the style it comes under. 
+
+From: The Dance Music Manual - Tools, toys and techniques - Rick Snoman

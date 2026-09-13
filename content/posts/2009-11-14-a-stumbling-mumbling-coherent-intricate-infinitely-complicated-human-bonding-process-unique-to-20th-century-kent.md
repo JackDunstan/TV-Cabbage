@@ -1,0 +1,26 @@
+# a stumbling, mumbling, coherent, intricate, infinitely complicated human bonding process unique to 20th Century Kent
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2009-11-14T18:17:00.001+00:00`
+- Original URL: https://www.tvcabbage.co.uk/2009/11/night-of-kent-madness-pt2-sat-8th-oct.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+A NIGHT OF KENT MADNESS - PT2 -SAT 8TH OCT - RAMSGATE
+
+Downstairs, IN HELL, a motley crew of renegades, rouges, medieval brigands, immaculately dressed clubbers, immaculately undressed travellers, wide eyed babes in arms and, er, the more mature, experienced clubbers flailed and intertwined love and limbs, tattoos and dreads, slap heads and smiles in a stumbling, mumbling, coherent, intricate, infinitely complicated human bonding process unique to 20th Century Kent.
+
+Unspoken rituals, rules and codes of behaviour were strictly observed. For example, in their dances the tVC crew vie with one another in the performance of spectacular bumbles and gurns. Flinging themselves on the floor they often land on their knees and then throw themselves on the floor again with scarcely a pause. Extreme physical strength and stamina, bred of drinking too much Herliman, is a characteristic of the male, and indeed the female, dancer. The deck gurus, elevated from their lowly status of "daft trainspotting tosspots" are now regarded as the joyous bringers of much recreational happiness. And, despite their unattractive features and low intelligence, they do hold a special place in the hearts of us all.
+
+Grabbing us by the spherical objects, tickling our fancy, providing a nice soundtrack to our inner explorations and vibrating our diaphragm in a most pleasurable manner were the following disc jockeys: Nick (sticking to the game, improving daily and for starting it off). Clive FX (playing a particularly fine blend of groovilicious housiness. "Really fucking good"). Rob Phelps (as ever, solid, dependable, reliable and, erm, unpredictable). Liam (deep, repetitive, almost transcendental). Ed (what can we say? Original, left field and out on his own). Kier (with us from the good old days at the Millers Arms in Canterbury. Sarah White at the helm. Dare we say, through rose tinted specs, halcyon days? Oh yeah, wondering off there. Kier's DJing? What some would call "spotless"). Tom (gives the mercurial duo a spacious edge). Tejen (what's that tune called that goes Bom Bom....Do It Man...Bom Bom? Classic or what? DJing was, as usual excellent. But you need more time). Oz (continues his unrelenting search for the nearest and newest bandwagon to jump on in order to imply his false social and political morals on anyone who will listen. Which is no-one. DJing? Played too late). Simon Stonehouse (for your humble reviewer, the best set of the night. Fresh from eight hours kip, he revived the morning sesh for the die-hards with two and a bit hours discy jockular jollity 'till 10.30am. Not forgetting Guest Jasper who was as one PP put it "well all right". Now officially on the subs bench).
+
+UPSTAIRS Mark Dettmar surprising with a well thought out, mellow, set superbly mixed (once he'd settled in). Mark Shimmon, acidy and trancey, played early (don't ask) and left early with only half his fee. His partner, Micheala, due to give birth any second. (Now the proud parents of a bouncing baby girl, Chloe).
+
+It was of course, Golden Boy, or Sherlock to us, who we were waiting for and he certainly didn't dissappoint.When his first tune went on everybody upstairs sprang up, ran to the balcony , and the downstairs atmosphere erupted. Pumpcious. Cheeky.
+
+Paul Hayes, after a, er, brief negotiation, relegated the pound-meister Warren and Third Lung to the 8 'till 10 spot. By the time they had set up and played the party was virtually over. Real sorry lads. A better spot guaranteed next time we work with each other.
+
+And finally...a mention must go out to Martin and Maurice for the sounds. Chirpy and Chipper. M looking after the baby whilst M had a kip in the van. Burning the candle at both ends after doing a fashion show that same afternoon).Rob "Siricom" Lights, due down from Nottingham with his strange images and video jockeying skills failed to show due to transportation entanglements (don't ask). Next time, "I'll be there!".And, this is the last, promise, Roy, the venues owner. Cheers mate.

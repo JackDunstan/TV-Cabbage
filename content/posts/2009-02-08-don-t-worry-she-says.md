@@ -1,0 +1,48 @@
+# “Don’t worry,” she says...
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2009-02-08T09:41:00.000+00:00`
+- Original URL: https://www.tvcabbage.co.uk/2009/02/1997-part-2-dont-worry-she-says.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+So, loads of spliff and cups of tea and ‘Michael Collins’ for the movie matinee on the sofa and all the chat I’ve briefly outlined above sees me opening my heart to Laura and telling her how I see what’s been going on with Nero and I (I’ll tell you later). 
+
+It’s really done me a lot of good and it’s done me no good at all because I’ve opened the lid again and became all emotionally upset and I’m heaving heavy sighs of despondency.
+
+Laura leaves and before I have time to think Bill arrives and he’s more spaced out than I am and he’s more confused than I am but for different reasons. His mental health is poor and after his poor mum Section 28’ed him she dumped him like a sack of shit and moved away and when he got out everyone was really funny towards him because no one understands what it is like to lose the balance of your mind, but I do, and I took him on ‘care in the community’ style and now he’s got out of that shitty bed-sit he used to live in and is now in Whitstable and just “hangs out” occasionally with us lot because we don’t mind him being spaced and sitting in the corner staring and laughing at his fingernails.
+
+I’ve encouraged him to buy a few records and now he wants to be a DJ, and he is telling me, real excited like, that he’s going to buy some decks for £700 and, you know, be a DJ. I should be encouraging him and I do in a way, by nodding and giving him some tea and letting him watch me play a game on my PC and rolling a spliff and before I know it it is six o’clock and Nero has come home from her shitty job that she’s been doing for six years down at Canterbury Wholefoods.
+
+I don’t really have time to say hello properly but I do know I have big plans for tonight. A mean South East Asian stir fry is on the agenda and a top positive re-bonding session is on the cards. I’ve got a bottle of wine and we’re, you know, going to see what happens. Hopefully rekindle our social intimacy. A nice quiet night in, just me and my…
+
+There’s another knock at the door. I leave Bill staring at the computer screen and Nero in the kitchen unpacking her daily goody bag of great unaffordable items of foody deliciousness from around the vegetarian world and go and answer it.
+
+It’s Tribble. “Got any hash?” he asks unshyly. Before I can answer the outside door of our block opens and in walks Pilly laden down with Tesco’s bags full of food and a big smile on her tanned thin face. Behind her is Mike who earlier said he was having trouble with his mice cage as they kept escaping and running around the house. He also had a few bags of stuff and it looks like they’re going to have a feed and a laugh and a mix. Behind him comes “the catalyst” – “Him”. “You can try asking him”, I say to Tribble pointing at “Him” as he disappears up the stairs to Pilly and Mike’s top floor flat. 
+
+Now, today is Wednesday, and as much as I (used to) like “Him”, he rings me at least three times a day and visits at least once a day. Last week I asked him, er, you know, politely, NOT to ring me so many times through the week or to visit so much. I like to spend some time alone with Nero and it is really hard to do that with him sitting on the sofa opposite. It’s not that I don’t want him to call or visit it’s just that he gets so manic and so excited he can’t really control his impulsive behavior. And, really, since his new role as ‘the catalyst’ my feelings towards him are changing.
+
+Last Friday at Sandy’s ‘Organic Earth Crew’ night in Canterbury at the Cross Keys we had a ‘bit’ of a confrontation. Well, we shouted at each other for a while in front of the whole pub and I said to him that he’s fucked my relationship up. He replied that our relationship was fucked anyway, which I didn’t, really didn’t, want to hear, so I went and sat at the bar and Sandy’s partner Philli had a lovely chat with me and explained in her lovely new-age, humanist way how destructive jealously can be. “Tell me about it”, I said. So she did. Out of nothing comes something. I met a new friend that night and she’s great.
+
+Anyway, Tribble disappears round the corner and after a mumble or two “Him” says to me “Can I borrow your scales?” innocuous enough you might think but it’s like he switched some trigger in my head and I, well, see my self flip out big time showing myself up and self control goes out on a windowless limb. Anger consumes and envelopes, but it’s not just anger its frustration and fear and loathing and the big red mist descends and I’m no longer myself any more. I’ve been taken over by ‘the beast that emerges when I don’t understand or control things’.
+
+“FFARRKING HELL”, I shout (I think I did shout that because it’s really difficult to articulate anger in retrospect) and storm down the passageway into the kitchen. Bill stares blankly from the studio understanding even less than normal. 
+
+“Who is it?” says Nero. 
+
+“WHO IS IT?” I shout back, “Who is it? Who is it? I’ll give you one fucking guess.” I’m now bellowing like an out of control madman because I am an out of control madman right up close in Nero’s face. “I’LL GIVE YOU ONE FUCKING GUESS WHO IT IS?” 
+
+Nero is understandably shocked and upset but the Red Mist doesn’t care it just consumes. “GO ON, GO ON, GO ON,” I go. “GUESS, GUESS, GUESS.” Total and utter lost it case. “Please stop,” my real self says somewhere inside my head but the anger doesn’t want to stop. 
+
+The jealousy won’t stop. 
+
+It bellows on. On. On and on. 
+
+“Remorselessly and relentlessly,” Nero says later. I grab the scales and head back up the passage. “Him”, Tribble, everyone’s gone but I still sling the scales out into the passage anyway and they clink on the cool, tiled floor and suddenly and as quickly as it had flared up it died down.
+
+The first emotions back into my brain and body redden my face deeply and I immediately slink into post-jealousy embarrassment. What a fool. What an idiot. Why, why can’t I control this emotion? Bill, realizing that I’m actually ‘madder’ than he is shoots off quickly. The door is shut and silence reigns as I walk back down the passage to see Nero. She says nothing as usual but just looks with drooped eyes and welling tears. “Nero…” I begin to say. “Don’t worry,” she says and takes me to her breast and hugs in silence right there in the kitchen in front of the uncooked meal we’re not going to have and the wine we’re not going to drink. We hug and hug and hug.
+
+**********

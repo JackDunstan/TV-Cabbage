@@ -1,0 +1,48 @@
+# The Tardmeister Strikes Again....
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2011-10-12T12:48:00.000+01:00`
+- Original URL: https://www.tvcabbage.co.uk/2011/10/tardmeister-strikes-again.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+My particular form of Asperger syndrome manifests itself in a very specific type of social obsession (some argue that Asperger syndrome is simply a variation of ‘normal’ rather than a medical condition or disorder – I agree).
+
+I really rely on my close, loving, supportive friends to indulge me somewhat when I embark on yet another episode of unreasonable demands and errant, seemingly unjustified, behaviour. 
+
+This can result in isolation, confusion and other difficulties including, in my case, anxiety attacks and frustration; a classic example of which I will outline here in this blog today.
+
+First; my manifestations that my other friends should be aware of (are aware of); I sometimes appear insensitive to the feelings or views of others (the lack of demonstrated empathy is possibly the most dysfunctional aspect of Aspergers says Wiki) and boy do I pay the price if I don’t acknowledge how wonderfully my girlfriend has painted the front door (absolutely stunning!) or how lovely her new clothes are (I love them colours!) or how absolutely marvelous and moving a particular DJ set was (excellent set!) or if I don’t thank profusely, whilst bowing and smiling and laughing, all of the helpers in the sound system for carrying a speaker (really appreciate your input!) or printing a flyer off (couldn't do it without you!). They appear so needing for approval and appreciation or acknowledgement; yet I don’t notice. At all. Most of the time. As a consequence I get called insensitive, aloof, snobby, a cunt. I’m used to all the abuse I get (which is quite regular) and don’t mind it really as I’ve had it all my life and it is a consequence of who I am.
+
+I sometimes experience the act continually talking my own talk, unaware of the others interest; I sometimes appear over-precise indeed pedantic in what I say (of course studying English at University encouraged and rewarded this behaviour); I have obsessions with objects (mp3's, records), interests (TV, computer games, food, stand up comedy) or routines which tend to interfere with building social relationships (this is known as stereotyped or repetitive behaviour or DJing as I call it). I also used to do webpage design and liked nothing better that sitting there all day slowly building links and pages; over and over again. Ah, the joy of no people around to demand I stroke their ego or dish out faint praise. 
+
+I seem particularly good at learning; I do well academically, and am good at remembering facts and figures. This means I’m good at maths (I’m a maths tutor in real life) but am supposed to find disciplines like philosophy difficult. This is why I cultivate an interest in philosophy now; to compensate. 
+
+At University I studied film as well and could remember, and still can remember, quite easily, the year a film was made, who its director was and who starred in it and many other useful or useless facts that I could then recite ad nauseum to everyone who wasn’t listening. Not smart; memory. An example from Wikipedia; ‘a child might memorize camera model numbers while caring little about photography’. Ah, the world of train spotting is verily an Asperger paradise.
+
+I was bullied at school. Surprise, surprise. There is a relative preservation of linguistic and cognitive development so I can appear ‘normal’ and do. We ‘sufferers’ appear smart but we’re really fucked. We need understanding and loving friends (because we won’t be doing any of that ourselves). I devote most, if not all, of my emotional energy to cultivating and preserving friendships. It is the most difficult thing I do.
+
+Being a DJ is the greatest thing that could have happened to me as it combines my two most favourite self obsessive interests; math’s (counting beats, creating logical structures) and getting things precisely right in time in the moment (cuing, mixing and dropping beats, organising set times etc). I am never happier than behind the decks cracking out a set; especially if I’ve started on time and ended on time. 
+
+This of course spills over into my real life as I still continually count things around me or see patterns (nobody notices that) but I also demand from myself obsessive and almost compulsive timekeeping. Not only from myself but also from my poor hard put upon tardy friends. 
+
+And so, another Saturday night begins with unnecessary swathes of worry and anxiety of triple proportion. A visit to a restaurant, a theatre visit, a party and DJ set. This three pronger of teeth grinding begins with a visit to a restaurant before a theatre date. We’re late. What a surprise that no one can organise their time effectively. I’m not late. Everyone else is late; half an hour late. This kicks back over the rest of the night and I never catch up ensuing my anxiety is sustained for a long period. I do not enjoy the night one bit. 
+
+We are at least half an hour late for the opening show at the new Marlowe Theatre in Canterbury; Stephen Merchant. My girlfriend and I walk through an empty theatre lobby and attempt to enter the theatre by a side door; we stand in the doorway eying our seats in the middle of the auditorium longingly, too afraid to ever attempt to sit in them as everyone has sat down and the show has begun. My anxiety levels begin to rocket as I get frustrated about missing the show and Clare, my superb, darling, loving and caring partner sees this and quietly says 'let's get out of here and grab a coffee? We can come back in the interval. We haven't missed the main act'. 
+
+I knew this would happen, had made allowances for it but still got anxious. My girlfriend and I dearly love our stand up comedy with a passion and have literally never, ever been late for a gig. Ever. Till tonight. I begin to obsess over how little the tardy people really care about how I feel or about how late we have been for everything and are late for everything. I promise to myself never to go to a comedy gig or restaurant with them ever again. It’s the only way to reduce my anxiety. Of course I won't and, later, find myself loving them just as much as I did before Tardygate even kicked off.
+
+After the show I just have enough time to get to and finish setting up the gig we're doing for Ed Millard's birthday . If I'm quick. The phone rings; can I pick, not one, but two people up in Canterbury and give them a lift to the party? I'm driving and heading out of town and shout 'no'. One of the liftees manages to find the car whilst we stop briefly. The other has to grab a cab. More anxiety. Not needed.
+
+One particular friend, who shall remain nameless, has never once been on time for anything I have ever arranged with him. Every meeting, every beer, every lift, every visit, every call, every set, every gig; late late late. I cannot bear it and would have dumped him years ago but, hey, what can a guy do, I love the tardy schmuck and forgive him every time. Perhaps he was put on earth to help me confront my anxiety about time? I doubt it.
+
+Every morning I get up exactly at 7am as the peeps go on Radio 4. Every night I’m not out Djing I am in bed at 10pm. On the dot. If I have an appointment I’d rather be there early and know I will be there early rather than risk feeling anxious and be late. I leave work at 5 and get home at 5.45; every working day. I’m a teacher and have my timetable (designed by myself); every class timed to perfection, every time. It’s a matter of me feeling good knowing I know what is going to happen and when. I am not spontaneous or compulsive.
+
+I am a DJ.
+
+----------------------------------------------------
+
+next; GinAndTonicGate

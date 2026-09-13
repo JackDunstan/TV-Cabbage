@@ -1,0 +1,40 @@
+# our uninspiring “let’s be mates” walk
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2006-03-20T12:30:00.000+00:00`
+- Original URL: https://tvcabbage.blogspot.com/2006/03/our-uninspiring-lets-be-mates-walk.html
+- Source: https://tvcabbage.blogspot.com/feeds/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+Been worried about how I might react to Tort and Jay suddenly coming along to everything as a new couple. Smug fuckers. Though it would cut me up and leave me anxious but things didn’t work our too bad actually.
+
+I was beginning to think that T was a bit of a selfish predator; cherry picking the men from our group (get me ey!); unaware or objective about whom she hurt along the way. Even when I was fucking her she only cared about her own pleasure I thought. She was quite highly sexed but strangely unconcerned about my pleasure. She seemed a little detached I thought. But then again we were both out of 17 year relationships where the sex had frankly been a bit pants. Her partner was fucking her friend behind her back anyway and mine was fucking the local pikey twat. (What? Doesn’t every group of friends have one? Darling! You must!). So I guess we were relearning how to be intimate again. Feel a bit miffed that I was in a way a practice for the real thing but now she got her wings as it were I thought the pain of seeing her fly again would be too excruciating to bare. Guess what? It wasn’t. I really don’t give monkeys. I hope they have a great time together. They deserve each other. Jay ain’t the smartest knife in the box so maybe he needs to be dominated by women who are smarter than he is in order to feel in control. Ha!
+
+By sheer bad fortune Jay had been booked by me to play The Smack this weekend gone, ooh, months ago. I’d had a few little run ins with him over the years, but nothing serious. He borrowed a maglight from me at a free party. I said please don’t lose it. He lost it. I’d booked him a few times to play gigs with us. He pulled out. We’d asked to borrow some of his kit once or twice; both times he’s said “no”.Not a good start really.
+
+He was having a relationship with a friend of mine, Sara. They split up quite recently. Acrimoniously. Now he’s with my ex. Didn’t really waste any time there. Neither did she. With S he had a ‘bit of a temper on him’. S spoke of hands round throat, shouting tantrums and frosty silences. Once I had to rescue her after J had flipped out in the car. She was in a right state. I thought this guy could be dangerous. Now he’s with my ex.
+
+Anyway, he came down the Smack to play his set on Saturday night. Justin was still milking his birthday ‘week’ and had invited people down to the Neptune for drinks. J and I walk down from the Smack to the Neppy for half an hour or so while MDM played a few tunes. I was going to give him the old ex boyfriend speech about how I hope he looks after her and how he better not try any of his violent ways on her, don’t you know, but I didn’t. Couldn’t? Why should I feel that I can interfere? It’s her choice and if she wants a relationship with a man with violent tendencies then who am I to interfere in any way? I must respect her choice and let her live it through. I may have to pick up a few pieces at the end – who knows how long it will last? - but it has to be played out without any interference from me. At work on Monday Helene tells me that Tort is going around to everyone in The Neptune saying “have you met my new boyfriend?”. Helene says “course I know him but mainly through tai chi classes.” “You’d think,” she say, “that they’d want to keep it quiet for a bit and I know that Jay doesn’t like that sort of thing. He’s just come out of a long term relationship and all that…” Maybe that could be Torts specialist subject: find vulnerable men fresh out of long term relationships and fuck them (up). Mee-ow pussycat. Besides of course everyone knows Jay. We have for years. He certainly needs no introduction to any of the Whitstable lot that’s for sure…
+
+Jay and I continued our uninspiring “let’s be mates” walk to the pub, neither of us saying too much. Once there I bought him a drink and he parted for the other side of the room to see T. I stayed at the bar and chatted to the rather lovely Katrina. She seems more interesting than I originally thought and she went out of her way to chat to me about the film “13” that we both saw at Cinema Three on Monday night. I think I like her but I know she has a bit of history which I’d like to get her talking about one day. In fact I do like her, she’s very good looking, striking, she’s smart too. Why do I feel nervous? Maybe I’m just a little bit scared of her. Who knows? Would like to get to know her more. I do know she’s single…
+
+Couldn’t stay watching the love birds play happy couples much longer so left for the Smack. Played a bit with Mark (oo-er) then made way for Jay, who was late, around 10ish. He tempered his normally banging set and actually played some nice tunes. I spent most of the rest of night getting pissed and flirting with Geordie Tracey, who was also pissed. Ended up driving her around most of the night; first looking for booze from The Fountain, then driving to J&E’s party then taking her home.
+
+We pulled up outside. It was dark. Tracey banged on the door till it opened and disappeared inside. We waited in the car. No Tracey 10 minutes later. I banged on the pub door. Nothing. Then; get this call from her. “I’m home”, she says. Confusion. Hastily we went round Wor Traces. A house full was getting stuck into her booze – which we’d actually got for the other party up J&E’s. Then we smoked and then had coffee. It was 2.30 3am ish by the time we got to The Paps Nightclub. I say nightclub, I actually mean their garden shed. Long and thin there were 20+ people crammed in there. I’d been getting regular updates at Tracey’s from MDM as to the state of play there.
+
+Call 1: well we’re here mate. Just need to clear with Just about getting the decks in the shed. I suggested he say to Just that he can play his tunes first (an hilarious collection of blues, soul, unusual tunes from bygone era’s and rarities).
+
+Call 2: decks are set up. Justin is on playing.
+
+Call 3: Woo-hoo! I’m on in 10 minutes.
+
+Call 4: I’m on. “Ok mate,” I say. “I’ll be along in half an hour”.
+
+Place was rammed. I work my way down to the front and where the decks are. Katrina is there. She’s an artist but not too pissed. I chat to her. I feel awkward and uncomfortable and don’t want to fuck things up by saying the wrong thing so just end up mumbling a few pleasantries and probably end up fucking things up anyway. Sara is there too but we don’t talk about the lovers. I think if we did we’d be making it sound like it was important. Besides Sara has a new job as area co-ordinator of the East Kent Syrenians and will probably be looking forward to her new challenges. Good on her. We both collaborate in our mutual recovery by staying silent.
+
+I wait for my set; texting MDM from the kitchen saying “can I play some tunes please?” After I play I hang out a bit and leave with Tracey who I drop off at hers before the lonely drive home and the sweet smell of the land of zeds.
+
+Sunday afternoon, 7 hours sleep (although I did dream about my ex and her new boyfriend fucking - not nice!) and a great breakfast later I head up the Saps for our usual Sunday afternoon walkwalk. They are still up. Well wankered. Playing with the barbeque, pottering around, listening to music. I stay a bit but am on another vibe. I head for town, ringing Warren up on the way. It’s Jo’s birthday and I go to there’s for a chat and a drink. Scouse and Simes and Anna are there. We talk about this festival in Spain that they’re going to. Glastonbury by the Sea. I read reviews on the net and it’s around 40 degrees during the day. After going home around 10pm I get a call off J&E; “Justin’s playing at the two Brewers! Come along!” I don’t know where they get the stamina from but I politely decline and head for bed ready for another full day up the University of Kent at Canterbury.

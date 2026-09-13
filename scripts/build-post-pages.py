@@ -6,6 +6,7 @@ from __future__ import annotations
 import html
 import json
 import re
+import shutil
 from pathlib import Path
 from urllib.parse import urlparse
 
@@ -13,6 +14,7 @@ ROOT = Path(__file__).resolve().parents[1]
 SOURCE_DIR = ROOT / "content" / "posts"
 OUTPUT_DIR = ROOT / "docs" / "posts"
 CDX_FILE = ROOT / "data" / "wayback-cdx.json"
+COMMENTS_FILE = ROOT / "content" / "comments" / "index.json"
 
 
 def linkify(value: str) -> str:
@@ -43,19 +45,36 @@ def capture_timestamps() -> dict[str, str]:
   records = json.loads(CDX_FILE.read_text(encoding="utf-8"))[1:]
   timestamps: dict[str, str] = {}
   for timestamp, original, *_ in records:
-    path = urlparse(original).path.rstrip("/") or "/"
-    timestamps.setdefault(path, timestamp)
+    parsed = urlparse(original)
+    key = f"{parsed.hostname or ''}{parsed.path.rstrip('/') or '/'}"
+    timestamps.setdefault(key, timestamp)
   return timestamps
 
 
-def page(post: dict, body: str, timestamps: dict[str, str]) -> str:
+def comments_html(comments: list[dict]) -> str:
+    if not comments:
+        return ""
+    items = []
+    for comment in comments:
+        author = html.escape(comment.get("author") or "Anonymous")
+        published = html.escape(comment.get("published") or "[unknown]")
+        body = body_html(comment.get("body", ""))
+        source = html.escape(comment.get("comment_url") or comment.get("source_url", ""), quote=True)
+        items.append(f'<article><header><strong>{author}</strong> · <time>{published}</time></header>{body}<a href="{source}" rel="noreferrer">Source comment ↗</a></article>')
+    return f'<section class="post-comments"><h2>Recovered comments</h2>{"".join(items)}</section>'
+
+
+def page(post: dict, body: str, timestamps: dict[str, str], comments: list[dict]) -> str:
     title = html.escape(post["title"])
     published = html.escape(post["published"] or "[unknown]")
     original_url = html.escape(post["original_url"] or "[unknown]", quote=True)
     source_url = html.escape(post["source_url"], quote=True)
-    path = urlparse(post["original_url"]).path.rstrip("/") or "/"
-    capture = timestamps.get(path)
+    parsed = urlparse(post["original_url"])
+    key = f"{parsed.hostname or ''}{parsed.path.rstrip('/') or '/'}"
+    capture = timestamps.get(key)
     archive_url = f"https://web.archive.org/web/{capture}id_/{post['original_url']}" if capture else post["source_url"]
+    source_label = "public Blogspot feed" if post.get("evidence") == "source-derived" else "archived Atom feed"
+    original_label = "Wayback capture ↗" if capture else "Source record ↗"
     return f'''<!doctype html>
 <html lang="en-GB">
 <head>
@@ -63,6 +82,7 @@ def page(post: dict, body: str, timestamps: dict[str, str]) -> str:
   <meta name="viewport" content="width=device-width, initial-scale=1">
   <meta name="description" content="Archived TV Cabbage post: {title}">
   <title>{title} | TV Cabbage</title>
+  <link rel="icon" href="../assets/source/blogspot-favicon.ico">
   <link rel="stylesheet" href="../styles.css">
 </head>
 <body class="post-page">
@@ -82,11 +102,12 @@ def page(post: dict, body: str, timestamps: dict[str, str]) -> str:
   <header class="site-header"><div class="header-inner"><a class="brand" href="../"><span class="brand-mark">TV</span><span><strong>TV Cabbage</strong><small>tVC Sound System / east Kent</small></span></a><nav class="site-nav" aria-label="Primary navigation"><a href="../#archive">Archive</a><a href="../page-list.html">Page list</a></nav></div></header>
   <main>
     <article class="post-content">
-      <p class="eyebrow">Archive-derived post</p>
+      <p class="eyebrow">{html.escape(post.get("evidence", "archive-derived").replace("-", " ").title())} post</p>
       <h1>{title}</h1>
       <div class="post-meta"><time>{published}</time><a href="{original_url}">{original_url}</a></div>
       <div class="post-body">{body}</div>
-      <footer class="post-source"><p>Source capture: <a href="{source_url}" rel="noreferrer">archived Atom feed</a></p><p>Original page: <a href="{archive_url}" rel="noreferrer">Wayback capture ↗</a></p></footer>
+{comments_html(comments)}
+      <footer class="post-source"><p>Source: <a href="{source_url}" rel="noreferrer">{source_label}</a></p><p>Original page: <a href="{html.escape(archive_url, quote=True)}" rel="noreferrer">{original_label}</a></p></footer>
     </article>
   </main>
   <footer class="site-footer"><p>TV Cabbage archive / local transcription</p><a href="../#archive">Back to archive ↗</a></footer>
@@ -100,10 +121,17 @@ def main() -> None:
     OUTPUT_DIR.mkdir(parents=True, exist_ok=True)
     index = json.loads((SOURCE_DIR / "index.json").read_text(encoding="utf-8"))
     timestamps = capture_timestamps()
+    comments = json.loads(COMMENTS_FILE.read_text(encoding="utf-8")) if COMMENTS_FILE.exists() else []
+    comments_by_post: dict[str, list[dict]] = {}
+    for comment in comments:
+        comments_by_post.setdefault(comment["post_url"], []).append(comment)
     for post in index:
         source = SOURCE_DIR / post["file"]
         output = OUTPUT_DIR / f"{source.stem}.html"
-        output.write_text(page(post, body_html(source.read_text(encoding="utf-8")), timestamps), encoding="utf-8")
+        output.write_text(page(post, body_html(source.read_text(encoding="utf-8")), timestamps, comments_by_post.get(post["original_url"], [])), encoding="utf-8")
+    published_index = ROOT / "docs" / "content" / "posts" / "index.json"
+    published_index.parent.mkdir(parents=True, exist_ok=True)
+    shutil.copyfile(SOURCE_DIR / "index.json", published_index)
     print(f"Built {len(index)} HTML post pages in {OUTPUT_DIR}")
 
 

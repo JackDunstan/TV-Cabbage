@@ -1,0 +1,116 @@
+# Another Moment Endeth
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2009-06-03T20:25:00.000+01:00`
+- Original URL: https://www.tvcabbage.co.uk/2009/06/t2-another-moment-endeth-email.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+How's your day been? Mine seems to have passed very slowly. Anyway, was it the 14:54 we were going to catch? I'm trying to work out what time I need to leave work. Probably 14:00. See you tomorrow. Have a pleasant evening.
+
+My day was ok. Passed relatively quickly. Didn't get back till gone 5 though. Had a new group of ‘silver surfer’ slash ‘ladies who lunch’ to ‘bed in’ at Newnham and one of the thieving bastards at palmer house, the homeless day centre, tried to nick one of the laptops in the afternoon but we found it hidden in a cubicle. We discreetly didn't mention we'd found so when they go back to where they think it was... it won't be there. Ha!
+
+Didn't have a chance to eat my tescos sarnies so having them for my tea tonight. Got the morning free tomorrow so going to book the car in for its mot and run a few essential errands? Gonna need it as tax runs out end of Jan. oh, bugger...
+
+Morning. Sounds like you had quite an exciting day, what with the laptop and the silver surfers. All the best with the MOT. Hope you've got a friendly mechanic. (I didn't want to get up this morning - gonna be worse tomorrow!) I'm planning on leaving work about 2 so I'll see you soon
+
+after that. x
+
+morning.
+
+Morning. Got your car sorted out? There's an H reg Renault 19 1400cc for sale in the car park here. Lovely condition. They've put £800 on it but it's been for sale for ages and I can't see they'll get that. If you're interested it might be worth offering them £300. I'll get the number if you like?
+
+Yes! Sounds like it might be what I want. I could spend that extended credit I intended to have (but can't afford) on my credit card that I had put aside for Amsterdam? My insurance runs out on 10th Feb. so I need something by then. Are you ok with? Or are you still pissed about the 'holiday'? I detected a distinct cooling off in your ardour last time we met. Do you want to talk to me about something? Anyway, enough of that.
+
+If not so then fine. If so then let me know. There’s nothing worse than not knowing is there?
+
+I'll go out and write the number down Ok then, if you want to know. I'm NOT fed up with you for not going to Amsterdam but for mucking me about, and not ever telling me what your doing hence making me look stupid (Harp club, Maidstone), and the fact that we never talk to each other about anything and the whole contraception issue. I could be really angry, which I don't think does me any good or let it go and try not to care. As I can't talk to you about anything, I'm going for the latter. I'll go out to the car park and text you the number for that car. It's a Canterbury number.
+
+Got the number through. Thanks. I agree with what you say. We never talk to each other about anything. Or ever have. From my side I don't say anything to you because your potential negative angry reactions and extended sulks make me feel fearful that everything I do say is wrong and upsets you So I, reluctantly, go for the approach of say nothing and suppress my feelings. I do it because I do not want to upset you. When you do talk to me it is like this; not face to face but via text or email and always weeks, sometimes months, after your grievance began.
+
+Perhaps this is still connected in part to the getting over of our old relationships and we're not quite there yet? What do suggest we do? What do you mean by the whole contraception issue?
+
+You're very right about getting over our old relationships but I don't suppose we can expect to be fine again within a year or two. Especially without any kind of communication. Contraception - it doesn't feel like you take it seriously enough. The comment that really annoyed me was "I'd like to decide when to put a condom on" I've been caught out 3 times before and don't want to be there again. It would be a very serious disaster for me. It's too much for me to have to be the one to take all the responsibility. It's a good example of why I don't talk to you. If I try, I feel I get a condescending and unsympathetic one sentence answer which frightens me out of trying to continue the topic. What to do? Well, as I said I'm trying not to get too upset about it as I've got plenty else to worry about, as I'm sure you have. I'm trying to step back and care less to that I don't get hurt so much. But to what extent I can do that and not step back off the edge I don't know.
+
+Just back from work for lunch and on my way out again.
+
+OK. I hear what you are saying and will take it on board. There still appears to be a lot fear there on both sides so we must work on that first before anything else. Rather than stepping back and caring less you should step forward and care more. I think. This withdrawal of affection from you is having a very negative and destructive effect on me. I do not want to feel like that. Condescension and a lack of sympathy probably sums up how we both feel about each other. I feel no love or warmth from you at all. Just coldness and unarticulated anger. At the moment.
+
+Really, we shouldn't be 'in therapy' at this stage in our relationship should we? I feel. Rather we should but up, positive, more natural with each other and enjoying what we have. Whatever that is...
+
+Sorry for the effect it's having on you. It's not doing me many favours. I think we are both intimidated by each other when we were originally trying to give each other an easy time. You're right, the only warmth coming from me is smouldering anger but it's just been one thing after another for the past few weeks. So, what do you want to do next?
+
+Funnily enough I just got back from signing a few learners up at the Horsebridge, sat down at the computer and your email popped up! Spooky.
+
+Potential Options:
+
+1. "Step back off the edge"
+
+2. Give up; Ah well, so what? It didn't work out? The world ain't ended. It's no big deal. Doesn't mean I'm a bad person. Does it? Even if it does,
+
+I'm ready to address those issues. appendix a) I wanted to love you but couldn't.
+
+3. We can not even bother to try; put it down to a) incompatibility / or b) not seeing eye to eye / or c) not recovered from previous relationship yet and therefore to scared to move forward / or d) not ready to move forward yet / e) don't want to move forward, happy as I am thank you very much / f) can't move forward don't know how to.
+
+4. We can realise and admit we don't actually like being in each others company, don't have fun with each other and don't like each others personalities anyway and will never like them.
+
+5. We are unwilling to compromise current position(s).
+
+6. We can continue to hurl hurtful insults at each other (e.g. sulky, negative, condescending) until one of us does number 2.
+
+7. We can continue to not to try to understand each others position and show no sympathy to that position (e.g. me with the contraception; you with your attitude to my debts) until 2. happens.
+
+8. We can continue to disrespect and undermine each other feelings in a negative and hurtful way until 2. happens.
+
+9. We can learn to talk at length about our feelings, as we feel them, openly and honestly with each other until they are resolved to the satisfaction of both parties - then move forward to a more positive future position.
+
+10. We can continue to kid ourselves that everything is all right and things will resolve themselves 'naturally' and everything will then be OK.
+
+e. do not do anything or talk about it any more. Assume the other person "should know how I feel".
+
+11. We can continue to make excessive and excommunicated demands from our respective corners and not listen to what the other person has
+
+to say until 2. happens. Known as the "la-la-la I'm not listening" stance.
+
+12. Adopt the "You can kiss my sweet ass goodbye" strategy. I.e. end the relationship acrimoniously. Not talk / see / hang out with each other ever again.
+
+13. We can continue to slowly withdraw affection, intimacy and social connections whilst sniping from behind barricades of malice and bitchiness
+
+until 2. happens.
+
+Which number would I choose? I don't know. Which would you choose? Or can you add some more options? It doesn't matter really. What does matter is we're going to have to choose one of the options and you might as well go first...
+
+Great email. I didn't expect you to make me laugh out loud with your next reply. It was the la la la that really did it. Did you want to have a go at talking face to face about some of this? (People keep coming in the office and interrupting me so I have to pretend to be working!) Maybe with an agreement that we aren't spiteful. What ever happens next I think we need a chat, away from the excuse/distractions of the TV. And see where that leaves us?
+
+Funnily enough I enjoyed writing it. I do love our email correspondence. I've arranged to see this car you mentioned on Saturday morning. And another couple of cars Friday evening after work. Here's hoping I can get a cheap and reliable car for virtually nothing...
+
+I agree talk is needed without distractions. Set a time and place. Not at our respective houses. Come with a clear head. Not this Fri or Sat.
+
+Maybe Sunday? Well, maybe Friday night? I need some time first to enjoy myself before the heaviness and need to have a clear, positive head for the Smack on Saturday. Maybe not Sunday? How about next week sometime? I don't know.
+
+I'm a more of a 3f kind person anyway that's leaning to a 9. I really just want a bit of positive fun with someone nice. Do and go out and enjoy some nice nights and some hot and lazy days.
+
+We're probably 2. coz you've already 1. and are half way through 13. We got there because of 5. and 6. and a little bit of 3a), 3b), 3c) which is causing 3d) and 3f). If we stop 11), recognize the futility of 10), really stop, and I mean stop, no 8) then with a little bit of rejecting 3) before accepting 9) we can coast through this little blip. If a bit of love and understanding fails try a suck on 12) before moving swiftly back to 2) appendix a). Here's hoping! What do you think?
+
+Over slept this morning so not long been in. Can't see me getting any work done today with this going on anyway. This is starting to really scare me. It feels like that nice rug under my feet has disappeared and there's no floor underneath - again. I'd like more than anything else for us to be on good terms. There's no reason that I can see why we shouldn't be. Yesterday I found it really difficult not to phone you because I wanted to get it sorted out but I appreciate that it can't just be on my terms coz you have to be ready to talk about it too and fit that in around your commitments. I think that 2 including appendix is probably about right and I feel very sad about it. So when and where? Please can we sort this out soon? Preferable before next week coz I need to get some work done and I have got other problems that need to be dealt with too.
+
+The best I can do on a venue suggestion is a pub - maybe in Herne Bay or something where there's no one that knows us. And I suppose that I would prefer this evening but up to you.
+
+OK. A pub in Herne bay then. How about that one we used to use when we went to the cinema there? Can’t remember its name. I could meet you after you finish work or at lunch time. Just tell me what time you'll be there. I would love to resolve this very soon if possible and know one way or another how you feel about progressing onwards to the future with or without me. You can ring me if you want or I’ll ring you. Email me if that's better and let me know what time I can do this. I’m working from home today. Don’t feel sad about it. Sometimes things in life do not work out. It doesn't mean we have failed.
+
+Yes that pub would be fine although it'll be very hard to resist the scrumpy! I'm due to have a meeting this afternoon so I don't know if lunch time is a good idea. Saying that I'm not fit for much now and would like to walk out the office now. At least there's no one here to see me at the moment. So what about 4pm? Unless I do walk out of work before then. I'm sitting here at my desk and just can't think about anything else. So I might as well write it down. I so want us to be ok with each other. We've spent so much really good time together. It would be too easy to carry on but we'll probably end up in the same position again in a short time. What was that you said about the last third of the relationship being the rubbish bit before you finally split? I'd really rather we didn't do that. Don't know what I'll do though without spending that time with you. All that lovely time on the sofa or in bed. Looking forward to going out with you at the weekend. But maybe the reality never quite realises the anticipation, except in bed of course. You always seem to enjoy the company of your other female friends far more than me. That's often made me sad. Sad for us. You've commented on the withdrawal of warmth from me but I've never really felt like you thought that much of me.
+
+But it doesn't matter now and maybe it was just the way I read it anyway. And in amongst it all I'm scared I've lost my social life which is so important to me but that's no reason to continue. I hate to think I've hurt / am hurting you. You've been so good to me in lots of ways. I just want to curl up on the sofa with you now and it all to go away. At least you don't have to waste money you don't have on a birthday present for me. I did so want to have a nice birthday - not much chance of that. (Now, now, that's feeling too sorry for myself) But we have been positive influences on each other haven't we? Learnt a bit more about life and people and ourselves? Enjoyed sharing the physical closeness even if it hasn't extended much beyond that. And I have loved you but each time I've felt it welling up something has happened that's painful, or maybe just too scary, to make me pull back. Maybe it was just a fantasy all along. I suppose I wanted someone to share that positive time with too. To go out with and stay in with. The thought of not doing that with you really hurts. Good job I've got a new box of tissues on my desk. Well, what a confused lot of rambling that is. So do I send it to you? It's not meant to be some planned press release to you, my mind isn't that organised.
+
+It's just the thoughts going round and round in my head. It doesn't even have the amusing, well written qualities of something of yours. But I think I will send it as I often have problems getting my words out. Hope I don't sit in the pub later unable to say anything (please try and give me time to think) but if you've seen this you'll have some idea of what's in my head. And I hope that I haven't written anything that's going to upset you more. Oh well. Send....
+
+Things will be OK with us if we want them to be. Believe it! You never seem to have much faith in us or yourself or your ability to get through emotional traumas. You are a strong and loving and loyal person who has a lot of love inside just bursting to come out and express itself in good ways. Why when things get a little 'tough' do you always want to run away from the problem? Problems are there to be resolved and worked through. What are you scared of? That you might actually care? It depends what we want from life, love and relationships (LLR) doesn't it? It is up to us and our attitude to LLR in the present that will shape things to come in the future. I feel we have spent around 90% of our time together in a positive constructive fun filled way. That's good for two hurt people like us. You may think different. It would indeed be a shame that the 10% of negativity is going to spoil everything. Then again that's the power negativity has. It doesn't need much of it to destroy good things. We may be in the same position we are in today again sometime down the line but that is what happens in life; it repeats itself in patterns only changing a small bit every time. The pattern of life for humans is never really changing. So what? The last third of a relationship is generally shit (my last one was anyway) but I feel we haven't even reached the first fifth of ours. Unfulfilled potential is the worse thing isn't it?
+
+Everything can end in an instant if that is what one party wants. That is what it seems you want and there is really nothing I can do about that if that is your choice. The door is always there and it only takes one step to walk out of it. I don't know what I will do without spending that positive time I had with you. I suppose I'll do what you will do and spend it with someone else. Our need for companionship transcends all our fuckups and drives us on to seek the company of others. Destructive or constructive. It is human behaviour. Reading between the lines you have already given up on ever having a positive time with me again so let’s make our meeting this afternoon something positive? I still want us to have a good time on the sofa, in bed, at the cinema, in restaurants, pubs, driving around, on planes, in foreign cities, art galleries, parties, taxis, on the phone, in emails and texts or just plain walking down the street at night, any street, arm in arm enjoying each others company, lost in the moment. I will always have that nice warm memory of you linking my arm as we skip down the street, looking up into my eyes and laughing at some silly thing I've said, your eyes sparkling in the streetlight, to carry around in my heart. It is one of the rare moments that I've felt genuinely happy over that past few years. Silly isn't it? When I think of your face it is always laughing. The personal problems, the inarticulation of your feelings, the negative attitude, the uncommunicated anger and resentment, the hateful looks you hurl at me sometimes that shrivel my heart I have already forgot about and forgiven you for. They don't matter. What matters is spending some nice times with each other. Like what friends do! We really needed to be friends first and lovers second. It was very hard for me to accept love again after 17 years of life with Nicky. I never really expected it to work. I do enjoy the company of my female friends. Yes I do. These are friends I have know a decade or more. That's a long time to know someone and guess what; they are still with me and still a part of my personal life. That's important to me. I want you to be a part of that too. You want the same treatment but don't treat me the same way. I enjoy their company (and yours) as I enjoy the company of all my friends because they mainly like me, usually enjoy hanging out with me, they let me be myself even if I say stupid things and upset them sometimes, they laugh at my jokes, I laugh at theirs, they make me feel comfortable and loved and wanted and safe. You sometimes don't do that for me. 
+
+Only sometimes. But most of the time you do and that's what I love about you. You make me feel that life can be good. At the bad times I feel scrutinised by you and feel punished for transgressions that you feel I have committed. I don't know. It's hard to articulate. All I know is it hurts me. When you are my friend, which is a lot of the time, I feel easy in your company, and loved and respected and, in the great moments, I just want to spend forever with you. You sometimes seem like two people to me sometimes.
+
+'Nice Tort ' and 'NotSo Tort '. I will put up with, even understand, forgive and help, the NotSo just to spend good times with the Nice. When you said at the beginning that I shouldn't fall in love with you I've been trying not to do that all along. I thought that you didn't want that from me so I won't give it. Out of respect? What am I? Some stupid idiot who'll fall in love with you and embarrass himself by fawning and making excessive demands on your love? That comment really hurt me deeply the second you said it and I carry it around and every time you speak to me I see that comment in your aura. I took it to mean you had no respect for any love I may have or want to give to you and if that is how you see me why should I love and respect you? Why should I love you? Is that what you want? Love is earned like respect. If I am the most negative person you have ever met then you have not met many negative people. You say in your email that 'it doesn't matter now' which implies to me you've already made a decision to end our friendship. Even a man on trial for murder gets to plead his mitigating circumstances. It's as if my feelings don't matter in this equation. And that is why you are splitting; only your feelings matter, not mine. It doesn't matter now what I thought of you? What does that mean? It does matter quite a lot what I think of you. I don't understand how you feel you are losing your social life? I'm sure you won't. If you split with me you'll only lose out on what you used to share with me. Everyone else is a different person and you have to negotiate separate relationships with them. Hating that you're hurting me is a good thing. But do you think I'm enjoying being treat like this by you? I would love you to have a nice birthday and you probably will. I would have loved to go to the Dam with you, no expense spared, with you but I can't afford too. I'm driving around in a car with no MOT, insurance running out on 10th Feb with absolutely no money to buy a replacement. Just spend your birthday friends who love you and you'll be OK. You say 'have been' a positive influence and that you 'enjoyed' sharing; all in the past tense. Not we 'are' or 'enjoying'; the present tense. You've never said you loved me or even that you even like me a little bit. I think you are a 3c) and until you move on from that all your future relationships may be like the one you had with me. I have fear of abandonment issues as you know and I find it really hurtful when someone does leave me and that is why I have tried to harden my heart to it to prevent the hurt and may not have been as loving or as giving as I am capable of. It's a shame you never got a chance to find that out. I feel you just wanted someone to have a bit of fun with but not to fall in love with. I have now fulfilled that purpose and it seems it's time to get rid of me.

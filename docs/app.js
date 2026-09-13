@@ -52,6 +52,7 @@ function titleFromUrl(url) {
 }
 
 function archiveUrl(row) {
+  if (row[5] === 'source') return row[1];
   return `https://web.archive.org/web/${row[0]}id_/${row[1]}`;
 }
 
@@ -116,7 +117,7 @@ function render() {
       </div>
       <div class="archive-actions">
         ${localPost ? `<a class="archive-link archive-local" href="${localUrl}">Read locally <span aria-hidden="true">→</span></a>` : ''}
-        <a class="archive-link" href="${archiveUrl(row)}" rel="noreferrer">Open capture <span aria-hidden="true">↗</span></a>
+        <a class="archive-link" href="${archiveUrl(row)}" rel="noreferrer">${row[5] === 'source' ? 'Open source' : 'Open capture'} <span aria-hidden="true">↗</span></a>
       </div>
     `;
     list.append(item);
@@ -134,6 +135,14 @@ async function loadArchive() {
     if (localResponse.ok) {
       const localPosts = await localResponse.json();
       state.localPosts = new Map(localPosts.map((post) => [pathKey(post.original_url), post]));
+      const indexedPaths = new Set(data.slice(1).map((row) => pathKey(row[1])));
+      localPosts.forEach((post) => {
+        const path = pathKey(post.original_url);
+        if (!indexedPaths.has(path)) {
+          const timestamp = post.published.replace(/\D/g, '').slice(0, 14).padEnd(14, '0');
+          data.push([timestamp, post.original_url, '200', 'text/html', '', 'source']);
+        }
+      });
     }
     state.rows = data.slice(1).sort((a, b) => b[0].localeCompare(a[0]));
     captureCount.textContent = state.rows.length.toLocaleString('en-GB');

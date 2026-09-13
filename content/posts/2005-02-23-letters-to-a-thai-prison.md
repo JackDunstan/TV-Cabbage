@@ -1,0 +1,262 @@
+# letters to a Thai Prison
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2005-02-23T13:56:00.000+00:00`
+- Original URL: https://tvcabbage.blogspot.com/2005/02/letters-to-thai-prison.html
+- Source: https://tvcabbage.blogspot.com/feeds/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+Surathani Central Prison,
+
+78 Donnok Rd,
+
+Ampurmuang 84000,
+
+Surathani, Thailand. 
+
+Letter01 
+
+Now then, now then, 
+
+Must say it was a bit of a surprise to hear from you after all this time. I’d heard all sorts of bits and pieces from everyone and no one. Not Ed. He didn’t even show at DiY’s 12th birthday party in London or Liam’s birthday party or Kier and Tom’s gig down at Sunblind (Shaun’s night at the old Planet Lazer now called Studio41). In fact his absence from any party was noted by all. Stevie V and Sara have been brilliant filling us in on your case and Sara was all chuffed when she rang us up to say she had a letter from you. Couldn’t wait to read it. Anyway, it was the night of the big birthday party down at John and Jane’s in Margate and what with it being the birthdays of Terry, Tanya, Jane and someone else we were all in fine spirits. Everyone has been getting on really well lately (what no crisis?) and, you know us lot, we don’t need much of an excuse to get together and party, so the rig was taken down the DJ’s assembled and the music sparked up.Everyone was given a piece of birthday cake, all moist and cake like with a topping of icing, when they arrived at the party. By 5 past 10 everyone was running around all excited like, chatting 10 to the dozen, and dancing in an exaggerated manner (so no change there then; from Tania anyway). I thought I must have lost a few hours and it was really 3am but no, upon investigation, Jane has spiked the cake with some party ingredients. Lashings of de ‘erb in the base and base in the icing. They were manic maaan. Luckily I’d already partaken of some festiveness mum and dad and wrapped the cake up in some tissue paper and put it in the back of the mixer. For later.
+
+It must have been around three by the time a sodden and rather fragrant Nick shouted in my ear: ‘I’ve got that letter from Steve! Read it now!’ and she shoved it in my hand just as I was executing yet another perfect mix for the glorious delights of a hot, sweaty dark room full of pulsating people with rolling eyes and moving arms, still talking 10 to the dozen. Luckily my new right hand man, Shaun, was there to take over whilst I slipped out to the bathroom with the, by now, crumpled card in my hand.
+
+Once in the light, and having squeezed past what seemed like hundreds of people all crushed in the kitchen I finally found sanctuary, locked the bathroom door and opened the envelope.
+
+We knew Ed was back, not because he’d rang up to let us know what was going on but because someone spotted him in Tesco’s with his mum. We’d thought he’d be out and about and we’d get the SP from him on your case. But no sign of him. I did think it was a bit strange that. Then hearing stories about him not visiting you very much and running (buying?) a bar and getting married and all the missing money. To be honest Steve I didn’t really listen to all this gossip coz you know what gossip is like? By the time it’s got round to your ears it’s been embellished 10 times and it’s difficult to tell truth from half-truth.That fundraiser for you was a great success; all the performers on the boat (is that the one you are talking about?) me and Shaun warming up, K&T, Big Hair played for nothing (that’s 30 quid saved straight away!) and everyone insisted on paying a tenner to get in. You weren’t far from everyone’s thoughts and we knew that this could be good for all of us. Unfortunately I don’t know how much was raised so can’t tell you what happened to the cash. Nick says it went straight up their nose but I’m not as cynical as that. Some of it probably went up their nose but maybe didn’t. Your guess is as good as mine. What we do know, now you’ve written, is that the money didn’t go to where it should have. You.
+
+You’ve said Ed done many things to you out there that fucked you over. What were they?
+
+Anyway, I was stood there in this bathroom reading words from you, the first I’d heard from you in fucking ages. And I’d been really worried about you and always thought about you every day, even when you were in the UK, even when we’d fallen out (which was a lot of times over the years) you were always a big part in my life, especially in the early days, and I remembered always at the end of parties when there was just a few of us left still smoking and drinking and playing records and having a really good crack and just being with each other and, you know, what friends do when they are with each other? Forgetting problems and money worries and just laughing and living in the moment and trying to extend that moment as long as we could. That’s how I’ll always remember you no matter what came after and I even laugh about you nicking my fiesta and driving it to Fav and ripping up the Tangentopoli on my doorstep and even when you were pissed off with me and you didn’t tell me why I still liked you coz I always knew things would right themselves in the end and all that conflict, if you can call it that, was forgotten about the moment I started to read your letter. I even read it to myself in a scouse accent.
+
+What I did was sort through the folder where I keep all the old Tangents and pulled out about 10 or so issues that I had doubles of. I do hope you got them and are reading them. Let me know if you did and I could probably sort our photocopies of the missing ones for you. Let me know how things really are for Steve. Let me know when the trial is. I know Stevie V paid you a visit. How was that for you? What will happen to you? Is the prison easy to escape from? How many letters are you allowed to receive? Can you receive goods? Is so what?
+
+I always said to you you should write down everything that ever happened to you. That was funny. But you always went ‘naaa’. Tell you what - All you need is 50 –100 thousand words roughly jotted down then when you get back, or you can send them 1000 words at a time, is to put them together, sort them out and you’ve got a film script, a play or whatever. A testament. Or least a great diary! Sent them and I can publish them on the website if you want. Choose a pseudonym and call your self Brad. Be funny. Be angry. Tell it like it is. Remember. Who. You. Are.
+
+1000 words a week for a year.
+
+Can I send you a typewriter? Or a laptop (ha)? What do you fancy doing? Get them thoughts down. Now! Even if you do nothing with them writing things down gets them out of your head. It’s cathartic. I could help you handle the time.
+
+I closed the card and it was all I could do to stop tears welling up in my eyes. Steve, how are ya? My little friend. My cheeky scouse friend. I mean, that’s all you ever were even at your most dangerous. No one deserves what has happened to you. If you were in England you’d be out by now. Although, I remember our French chums really freaking at Angelo’s party a few years back, when Kier cut his foot (see Tangent article for more details), when you were scousing it up to the max: ‘I want English money!’ I imagined a similar thing in Thailand but then again you always used to play down the risk and laugh it off.
+
+Back out to the party I went. Nick was running around with a few sheets of paper and a pen in her hand telling everyone about her friend Steve whom everyone should write to. Even people who didn’t know you she was telling them about you and your plight and getting them to write something down on these pieces of paper. When someone did she’d shriek with delight and go on to someone else.
+
+John and Jane were going abroad on holiday first thing Monday morning so they stopped the party early at 11am and chucked us all out. Never fear. The party people are here, so we jumped into loads of cars and sped down the Thanet way to Whitstable where we ensconced ourselves at the new tVC HQ by the sea in Tankerton and partook at our leisure the consumption of that case of beer I happened to have stashed in the fridge that we got from Nicky Billington when she got a new one. We lazed and bullshitted till it all ran out and that was the end of another weekend in the land of the rave and the home of the free.
+
+Early next week I took a call from Rupert the artist. He’d squatted Johnnies Art House in Whitstable. The building is due for demolition, as is the Assembly Rooms, to make way for a new development for the rich twats next year sometime. Conrad and Bunny (don’t ask) had squatted the Assembly Rooms a few weeks before and had had a shit party where no one had turned up to. Anyway, Rupes was doing a squat exhibition and wanted some sounds so I went down there on the night and set up the decks. There was also work from Mark DeMiko (is that how you spell his name), Emily and Justine.
+
+When I opened the decks Justine goes ‘oh, what’s that? A piece of cake. Can I have it?’ I explained what it was and he said ‘Can I have it?’ and I said ‘OK’. Later that night I was outside and Justine came up to me, after having a full on night getting pissed, cakey, shouting and generally being on one, and said ‘I think it’s time we had a hug.’ ‘OK’ I said, and he then gave me this full on blokey kinda hug that pulled me in and got tighter and tighter and I could tell he meant it because when he pulled away he looked me in the eyes and said ‘I think that’s the first time we’ve ever hugged?’ “I think it was. Yes’, I said. He sighs, smiles and says; ‘Yes. Nice.’ And I knew exactly what he meant.
+
+Take care Steve and have a big blokey kinda hug from me and I will write again soon. I promise.
+
+.
+
+Letter02 
+
+Now then,
+
+Had a strange weekend just gone just before Christmas. Was booked to play in Canterbury at Studio41 with Shaun, Timo, Jes, Rosie and Friendly Pete. It was supposed to be a bit of a Christmas bash for us but things never always go as you plan them. We’d also been double booked as we’d agreed to do Marie-Anne’s farewell bash in Whitstable, Cromwell Road the same night but as it was agreed months ago so we couldn’t back out.
+
+I’d decided that the best way round this was to set up the Cromwell Rd party early-ish – they had their own DJ coming to spin some old Motown and stuff like that while the relatives were there – hang around and pick up our gratuities (a large bottle of Vladivar and a case of Hooligans) then drive up to Canterbury, play the early set, then come back to the Bubble around midnight.
+
+But the best laid plans of mice and men…
+
+Nick and I were chilling at home in the afternoon sucking on some top weed, which the hip hop boys gave me for designing their flyer, when there’s a knock at the door. It’s Stoney. He’d had our car round at his mate Stuarts the week before for about five days repairing a blown head gasket. Whilst doing this he’d damaged the thermostat and severed the choke cable. Anyway he’d come round to fix it before him and girlfriend Jenny drove down to Cornwall to visit jenny’s mum. He’d been out there hours, and it was freezing cold, and we needed the car soon. He came in with a long face then informed us he’d snapped off the thermostat cover, couldn’t get a replacement (everywhere was shut) and would ‘come back tomorrow’ when he’d got a bit.
+
+The night just caved in around me. Nick was on the phone ringing Cagey to see if we could borrow his left hand drive Renault to move the stuff. I ‘arranged’ with Stoney to meet early at the Crommy party where he would pick me up, drive me to Canterbury, wait around till I finished my set, and then drive me back to Whitstable. I now had a chauffer for the night!
+
+Nick zips up to Cagey’s to pick the car up and on the way back decides to partake herself of a opened bag of jelly babies on the dash. By the time she got back she was saying things like ‘I don’t feel very well’ and ‘out of the fucking way, I need the loo!’ Within ten minutes it was gushing out both ends. She was a right off for the next three days. Lying on the sofa with the duvet around her lithe frame, the fire up full blast going ‘I’m cold. Oh fuck… it’s happening again’ then running in three steps to the toilet. Poor thing.
+
+Anyway, managed to get the kit set up, one of the hip hop boys (Steve) agreed to play 10 till 12, met Stoney who picked me, went to Canterbury, no Jes and Timo coz they’d fucked off snowboarding somewhere in Europe, if fact no one there at all, so plays a hour and a half, Shaun strolls in, takes over, say my goodbyes, agree to meet everyone back the Whitstable party, then fucked off, ensconced in the back seat with the heater up full and avoiding all the police patrols out for the crimbo drunk driving blitz.
+
+So, Nick out for the count, 2 DJ’s missing, car fucked. Only redeemed later on when me Louie, Steve and Emily went round to Sara’s, lounging on her sofas, to get drink some ‘Vlad the Impaler’, as Louie kept calling it. Over and over again. We sat round the fire chatting away till around six in the morning – Sara, Emily and Louie were seriously pissed by now – till I rang Nick to see how she was. As she was up and about she picked me up and took me home. The end of a rather unpredictable day.
+
+The Tuesday before we got an invite to Chris Goodman’s birthday ‘drink’ at his house 7.30 pm onwards.
+
+I’ve been a web page designer for the past year. Been working down in Sandwich for a communications company in their Internet department with a 22 year old coder who’s into fast cars, a 55 year old graphic designer with 5 young kids and who never stops talking and a boss who’s a member of a ‘swinging couple’s’ website; we know coz we hacked his machine and found his membership (heh, heh). I thought I was a freak! But I feel well a home. Among this lot. There was supposed to be this fire drill one day but the alarm in our end of the building didn’t go off. The Managing Director, who is from Belfast and has a well thick accent, burst into our room and shouts ‘ You’re all fuckin’ dead!’
+
+Nick and me have been going to see a couple’s therapist for the past few months. With long-term couples you get particular problems associated with repetitive behaviour patterns. That is we tend to argue in the same way each time and nothing gets resolved properly. These patterns tend to create resentments and frustrations, which build up over the years. We’re having fun at the moment coz she’s unpicking all this stuff and we seem to be getting on a lot better. Next session in January we talk about ‘our families’. Aargh! I’ve said to Nick ‘please don’t call Colin a psychopath.’
+
+Did Tracey-Anns club, Clublife, on New Years Eve. The back room ‘till 6am’ as it said on the flyers. We had to split the time with some other DJ’s (Matt Walls did the first slot! He seems to have calmed right down.) but eventually got on the decks about 1am. The drink was ‘free all night’ or so it said on the flyers but they shut the bar at 2am. Never mind, we had two crates of lager and a bottle of Jack Daniels stashed behind the decks just in case anyway.. We also had loads of lush ‘mum and dad’ that everyone was tucking into and apart from a few drunk lads seeking help from Dee, the nurse on duty, everything was all going along uneventfully till 5.30 when they told us to turn off the music. What follows next is the article published on the tVC website:
+
+NEWS
+
+tVC assaulted by bouncers in New Years Eve Debacle
+
+"All cruelty springs from weakness."
+
+(Seneca, 4BC-AD65)
+
+Door staff at Clublife night club in Denge Marsh near Lydd assaulted three people from tVC Sound System as they attempted to dismantle their equipment at the end of the evening. They had been working, supplying sound equipment and DJ's for the back room of the New Years Eve Ball at Clublife and were in the process of removing the equipment from the club at 5.30 when the assaults occurred.
+
+According to eyewitness reports, at 5.30 in the morning after a rather uneventful evening, heavy handed bouncers used aggressive, unrestrained and unreasonable tactics to eject 2 women, attached to tVC Sound System, from the club into the car park. Once there, 18 stone Bobby, the head of security at Clublife, proceeded to attack one of the women, pushing her over and punching her. The other woman attempted to restrain the man but to no avail. Both women's combined weight was 15 stone.
+
+'They just picked us up and threw us around like tissues', said one of the women. The other said 'It was 5.30am and the music had just been turned off in our room, the back room. There was about 15 or so of us all sitting around the table talking and waiting to load the equipment up into the van so that we could go home. Of the 15 people, 10 or so were crew members and the others were friends who'd come down for the night. They turned the music off half an hour earlier in our room. People were drifting out into the main room which was still going full on. The guys were busy behind the decks dismantling the equipment. We were all sitting rather quietly when a couple of bouncers came over, one of whom I now know to be Bobby, and told us to 'get moving' as they needed the room 'cleared'. I said that we were all just waiting for our driver to get the van and then we would be moving the equipment. He said 'What all of you?' and I said that yes all of us were involved and they were all helping us to load up the equipment.
+
+With this they went, only to return about 5 minutes later in a much more agitated and insistent state, saying 'Come on now, get moving' or words to that effect. At this I replied, 'No we're not moving, I told you we're waiting to move the equipment." Whereupon he started to insist on us all moving. I told him to fuck off, and he said 'Swear once more and you're out.' I responded by turning to the people on my left and talking under my breath started to say how unreasonable his behaviour was being and he said 'don't mumble under your breath at me.' To which I replied "This is ridiculous, I'm going to get Paul to witness this.' He was standing in my way and I tried to get past him. At this he said 'Right you're out." He then grabbed me by the left arm and threw me physically out of the back door. The other bouncer who was by his side this whole time then stood in front of the door, barring the way.
+
+Outside I was thrown onto the concrete, and he was on top of me throwing punches. I managed to get a bit of rock in my hand and started bashing him above his left eye in the hope that he would get off of me and stop hurting me. I was very frightened. Somehow I managed to get him to loosen his grip and got to my feet. I ran to the back door of the club and screamed through the door as loud as I could, 'He's kicking my fucking head in out here.' Then I was dragged back down to the concrete again and fell down onto my left side. As I looked over to the door I could hear Zoë screaming and then she was flying through the air as she was flung by her arm across the car park.'
+
+One witness to this assault, Stuart the tVC driver (who was not allowed in on the guest list and had to pay the 37 pounds entrance fee, and only had a few beers because he was driving) attempted to intervene as he watched through the open fire door from inside. Two other bouncers barred his way outside as they were standing in front of the door as he attempted to push through to save the women. All three then turned on him and pummelled him with blows all over his body and face breaking his glasses in the process. Everyone of the other 8 or so eye witnesses was shouting and pleading for the men to desist their actions. 'He lost control', said Pete, a tVC DJ. 'Right in front of everyone'. 'Me and Zoë threw ourselves in between the bouncers and Stuart and everything seemed to calm down a bit as everyone else managed to push their way out into the car park and could see what had happened'.
+
+Clive, a 45 year old teetotaller who also paid 37 pounds for the free drink all night ticket, said 'I have never seen such outrageous behaviour from door staff in all my 30 years of clubbing. The other two door supervisors were really good and were handling the situation well until the head of security arrived. Even when he was assaulting the women they still remained calm and were trying to restore order. It was Bobby who really over reacted to a scenario that was actually quite trivial. I don't think I will be coming back here. We're all more, ahem, mature clubbers and we don't really need this harassment'. Cecile, 48, and a first time clubber, was in tears as events unfolded. 'Oh dear' she said as she sobbed.
+
+Other, regular, clubbers from other club promotion nights, including Splendid, have complained before about 'heavy handed behaviour' from this team of door supervisors such as 'beatings' and 'assaults', 'rude behaviour' and 'inappropriate language'. 'Following people into toilets', 'ejecting' people from the club for 'trivial' or 'unsubstantiated' reasons such as 'rolling up a cigarette'. 'Over stringent searches upon entry' and 'aggressive attitudes at the end of the night when they are clearing people out' were other complaints. 'No smoking is allowed in the club and this rule is vigorously pursued'; 'people have to go to their cars for a spliff'. 'You can't relax even if you are not doing anything to irritate the bouncers'.
+
+The current bar manager, Stuart B, when asked about this and other incident alleged incidents said 'I've talked to Bobby and he says that she said 'fuck off we're not turning the music off' and threw a bottle at his head.
+
+'They're in charge. They handle the security. I have to back them up'. Even if they are wrong? 'There's nothing I can do about it!' was all he would say.
+
+Even club owner 'TA' was reported to have asked them nicely, after another incident at the main door, 'if her really good friend from years ago' would be allowed back in the club after he was thrown out for committing some 'minor misdemeanour'. There was also a constant stream of people at the first aid post suffering from alcohol related complaints. 'All of them very, very pissed' said the nurse on duty.
+
+NYE at Clublife was supposed to be 'an explosive high-energy fusion of the years best promotions DJs from Clublife / Splendid / Monkey Business / Unprofessionals / Ex-essential and tVC. Fully heated marquee with chillout cafe and waitress service two rooms of music drinks free all night except champagne, midnight madness, performers, tickets £37!!!!!!' - but wasn't.
+
+Club owner TA was asked to talk on this incident but, so far, has refused to comment.
+
+Both women are filing complaints and are considering pressing assault charges against the man.
+
+-----------------------
+
+I have started threads on various message boards on the net about this; chiefly Clublifes own and the responses have been interesting. Will send a compilation of them next letter which I will send next week (and I’ll send you a letter filled with stuff from the UK every week from now on till you get back home to your friends and family). Do you get any news at all? Do you want me to send an extra letter with news articles from the newspapers and magazines? Current affairs, music news, whatever Steve, just let me know. I want to support you over there. Are you getting these letters?Till next week, take care.LovePaul
+
+Letter 03 
+
+Now then,
+
+How’s Steve today? Hope you’re feeling OK. Whatever happens Steve you’re a survivor and I know you’ll get through this, come out at the other end, and be a stronger person for it. I know it’s a cliché but what doesn’t kill you makes you stronger. It’s that scouse gene! It’ll survive everything!
+
+Talking to people out and about there is a lot of support for you from your friends and even club acquaintances. Everyone is on your side and sees the injustice you must bear. There are greetings from the DJ’s Jes and Timo, Shaun, Rosie and Richie, Polly and Sarah, the Fav gals, Margate John and Jane, Gary and Shelly and countless others. Everyone knows of your plight and I thought I’d put something (i.e. your address) on the tVC website to encourage more people to write to you. I hope it works.
+
+Anyway, to continue from letter 02 here’s a few reply’s from the message board about Nicky getting beat by bouncers at TA’s Clublife. Nick and me were remembering TA’s parties up on the hill in that fuck off detached house in Bredhurst. About how we used to sneak round the back and get in for free and, later on in the morning, ‘take over,’ as they said, and stay there all day getting wasted and about how she banned us from these parties and didn’t speak to us for years and Chris Stone wrote an article in the Guardian on one of her ‘soulless’ powder parties which we reprinted in Tangentopoli and she thought we’d wrote it and didn’t speak to us even more. We kept telling her it was in the Guardian and 400,000 people had read it. Anyway, here’s the message board regarding naughty punchy bouncers………
+
+Becky- I have been going to Clublife since it opened and have never had a problem, with security or the bar staff. Even when I worked on the door one night I found them to be both professional and courteous. Don’t really see what your problem is.... unless of course you were causing trouble. Then of course they were only doing what they are paid for. NYE was one of the best nights that I have had there. It is somewhere I recommend that all fellow clubbers go, at least once in their lifetime!
+
+Just to follow up on that ,would like to know how you feel about the first aid nurse being held in a head lock by a young idiot. While attempting to calm him down?! The bouncers did a grand job! That nurse by the way was me.
+
+Paul in reply- Listen Becky, I can appreciate what you are saying. I'm 41 years old and have been clubbing in form or another all around the UK since I was 17 and I have never seen a bouncer behave so irresponsibly in my life; and that is attending and promoting house parties from Newcastle to Bristol and London. I'm no exaggerator. I have witnessed bad bouncer behaviour and I know they can be sometimes a bit over the top. It is after all a very stressful job. I agree with what you say about the professionalism of the Clublife door staff. I always thought of them as firm but fair and had never seen them behave in so unrestrained a manner before NYE. The sad truth is that despite all their previous good marks on NYE they behaved abominably towards those two women in front of a dozen witnesses. The women were not physically violent in any way towards anyone and the aggression Bobby displayed was totally unwarranted. Charges are being brought against the security staff and I hope the Law can sort out this matter properly (I very much doubt it though). I too have been to Clublife a lot and had some terrific nights out and met some great new people (including members of staff) and have never had a problem with any security or any of the bar staff ever. Till NYE. I have also worked with TA and Johnny on and off for nearly 10 years. I think they are lovely people who just want to run the best club they can. I would never wantonly do anything to harm them. The Splendid parties down there have been some of the bets nights I have ever had out clubbing. But, unfortunately, on NYE 3 people were assaulted in the back room at 5.30am. I have tried ring TA 3 times to talk to her regarding this serious matter. She rang back on the second around 10.30am and said she had just got up and could she ring back later. When she rang back later she asked if she could ring back later as she had guests. We said OK. It is now the 4th of Jan and despite another call from us she has still not rang back. Why do you think that is? Some questions need to be answered and at the very least she should be enquiring about the health of the victims.
+
+John- You completely fail to mention the fact that you were repeatedly warned though out the evening about behaviour and openly using drugs and you repeatedly ignored the warnings you were given. You were aggressive towards the door staff in your attitude and generally rude to people.
+
+Unknown- Better update your Cabbaged flyer on your hyperlink to splendid, says on there about getting drunk & telling bouncers to fuck off. Tells everyone exactly what you are like. Shot in the foot maybe?
+
+Shaun- You really are a twat!
+
+Freind- taking drugs? On NYE? At a club? Hangings too good for them. Ok, if I were to take drugs in front of a bouncer in the majority of clubs I attend, I would imagine that the bouncer would a) confiscate said drugs, and give me a scary warning, b) confiscate the drugs and throw me out, or c) just throw me out/ask me to leave. If I were hosting an evening of music in a room of a club, and a bouncer asked me to clear out the room at the end of a night, I would expect the bouncer to understand that crew and associates of the sound system would be required to remain present until the rig could be removed. Also, if the rig couldn’t go anywhere in the meantime, i would hope that there would be no reason for the music to be turned off - what would be the point after all, in stopping a limited number of people enjoy themselves? More importantly, if I were hosting a £40 alcohol binge night, I would make pains to provide some form of coach service to and from the club, as it is ludicrous to assume that everyone leaving the club is going to be sober and fit to drive. Fundamentally, everyone involved is probably guilty of some degree of irresponsibility, none more so than the bouncers who so blatantly overreacted to an alcohol fuelled situation. I say, everybody can be mates again... hopefully. ps alcohol causes far more deaths, divorces, road accidents, injuries, violent acts, dementia, and indeed impairs judgement to a far greater degree than just about any other drug i can think of...
+
+Forgot to mention my personal experience with the Lydd staff. I have always found them to be offensively natured, aggressive, standoffish and unhelpful. I believe they feel it is their job to make sure you feel watched. They belong to the dark side. At the end of a night, after the last tune has been played, before you get that ringing in your ears, you are sure to hear, "everybody out! Could you start making your way, P L E A S E!" in the manner that bouncers think comes across as 'reely ard an sarkastshtik', but in fact, they are just putting a downer on your evening, lessening the likelihood of you ever coming back, and thus, arseholing themselves out of their own jobs. Their searches are extreme - how anyone can get drugs in such a place, without the bouncers knowing in advance, is beyond me.
+
+A person- Sorry but you are taking this right out of context. In all the times I've been to Clublife I have never felt threatened or intimidated by the bouncers and never have I seen the staff to be rude or offhand with me. Why not try and hide your stash in a better place. And in reply to your query about the lack of transport. Sort something out for Christ’s sake, what do you want? The moon on a stick?
+
+Sane person- What are you like?
+
+Insane person- soft and bruise easily
+
+Paul- (reply to John), On the contrary no one (that I have talked to) from tVC was 'repeatedly warned though out the evening about behaviour and openly using drugs'. Who were these warnings given to? By whom? What behaviour are you specifically referring to? What do mean by 'openly' taking drugs. All drugs taken are taken surreptitiously as they are in all night clubs. I think you are misinformed here or are exaggerating.
+
+(Reply to dear unknown,)tVC are not violent people. We are peace-loving people who abhor violence. The link was meant to be 'ironic' 9I will remove it as you find it offensive). In the 15 years we have promoted parties we have never had an incident of violence with anyone, particularly a 'colleague', which Bobby was that night. Remember we were working to. We were on the payroll. We were staff that night just like everyone else who was working there. We were not some surly pissed punter refusing to leave at the end of the night.
+
+dear 'a friend' I agree that 'everyone can be friends again' but people have to talk to each other first, acknowledge the problem, them resolve it in the best way for both parties. TA? Bobby? Ring tVC please we need to talk.
+
+Nick- A general reply. We were not told repeatedly through the night to stop misbehaving, nor were we taking drugs openly all night. If we were surely we would have been thrown out by the bouncers there and then. Why have the bouncers not cited this as a reason for throwing us out? I was not being aggressive in the slightest. We switched the music off at 5.30 as soon as we were asked to do so by the bouncers. Then all of us sat quietly round the table talking amongst ourselves waiting to move the equipment. Bobby was being most aggressive from the off and insisted we get out of the room, despite me saying we were all waiting to clear the equipment up and carry it out to the van so we could leave. You must understand that it takes more than one person to pack up and carry all that equipment. That wasn't enough though and I don't see why it seems to be considered perfectly acceptable behaviour for three people to be assaulted and slandered because some bouncer has momentarily lost it. Answering someone back is not being violent however you may like to twist it. At no point did we refuse to turn the music off or did I chuck a bottle at him. I am a peaceful person, who although may get a bit mouthy on occasion totally abhors all forms of physical violence.
+
+Spaceman- Sorry to hear about the nasty ending with the TVC crew - NYE, as I have said in an earlier note my partner and I had a fantastic time. I cannot comment on what may or may not have happened as we left before any of this took place, what I would like to say is that security staff are there to protect us from anybody who thinks it might be clever to start acting in a nasty and aggressive way, which I think on the whole do a good job, however I did notice a more hardened stance from the security staff that night, but then they did have to look out for a large number of drunk people, which if I was in their position would be on edge as well.
+
+Shaun- I like you! top man!
+
+Unknown- You tVC guys need to chill out! Talk about over reacting, most students find it difficult to write an essay but it seems your very competent. Maybe you should go back to college and do something more useful with your time. Ok so TA hasn't spoken to you, if you are pressing charges then she has every right to remain silent.
+
+Unknown reply- You twat!
+
+Punter- TVC have every right to be annoyed the way they were treated is disgusting, it’s meant to be party after all. If I wanted to watch wrestling I'll get Sky television thanks! Certainly would not expect this on new years eve/ day. Fair enough some of security are OK Louise I think her name is cool, but some of the blokes need to calm down a bit. At the end of the day we're going for a night out and TVC provide a good show. I hope we see them again but wouldn’t be surprised if this is the way they get treated. Its shame you treat people in this fashion...
+
+Penny- Clublife do a very professional job. The staff is friendly and efficient. Organising an event like NYE takes months and hats off to TA and the crew. Bouncers are a necessary part of any club and are used to telling people what to do. Sometimes they cop the brunt. TVC are a collective who's heart, I think, is in organising free parties, which are by their very nature self-regulating. We’re not used to being told what to do, especially in such a manner and on NYE Nicki copped the brunt! I'm writing really to say let's not forget that Partying is what we All love and where our common ground lies. Happy New Year and love to ALL of you and....Roll on the summer!! X
+
+Paul- Thanks for everyone's comments. It would be nice to hear from the club (bobby or TA or Johnny on this, either via this board or by phone). tVC would like to talk about this and hopefully sort things out. Nick feels that she is being tarred with the violence brush and if she drops it then she is saying she is guilty - which she is not!
+
+Rosie- As a punter plus a DJ playing for the tVC and the new years eve collective, having been with tVC for over 5 years now, the treatment that has been dealt to us since we have been to Lydd has been once surprising and on NYE totally disgusting. I having played at Lydd for a few Months now and have been aware of a few discrepancies, when the music was turned off and I heard the bouncers telling us that the music had to be turned off, the music went off. To my memory, the music went off, then we questioned that the music was being turned off before the time advertised 6am, this was received with what appeared to be an aggressive reply from a bouncer, he said if you swear once more you will be thrown out, to which surprise was expressed by which Nicky and others then Nicky was then taken roughly from the club and to outside and then man-handled. As the divide from the main room and the back room was made, we packed the equipment as shocked and as quickly as we could. This was NYE after all, there was no violence apart from what happened to Nicky, there was NO bottle throwing there was NO violence only that there was surprise at the room was being turned off before the designated time. I DO NOT UNDERSTAND THE NEED FOR BAD BEHAVIOUR from those such as the people that had befriended us and people that are supposed to give you security. I only hope that the people that have added to this message board actually do KNOW what happened that night and are NOT JUMPING ON THE BANDWAGON. I hope this does get sorted out and the main people concerned are dealt with the proper way and that this is NOT repeated again.
+
+Unknown- yes
+
+Uknown- i have known tVC for many years and believe they can be very violent and for everyone’s information it was both the bouncers and tVC, i.e. Nicky that was in the wrong!!! All the times i have been to Clublife, no matter what night it has been the bar staff and door staff have always been fine and just doing their job. So in all what ever you do don’t blame TA, none of it was her fault! P.S. it wasn’t only alcohol that was inclusive it was all-inclusive.
+
+Unknown2- At what stage does it becomes your fault for being assaulted? Does the "she was asking for it" argument carry much weight in your small tiny mind? Does it apply to any other areas of your life? Where in Bobby’s job description does it say that foul language is just cause for physically assaulting a fellow co-worker, or anyone else for that matter?
+
+Yawn- boring boring boring
+
+?- Sticks and stone may break my bones but words will never hurt me! Bobby will hurt you when he throws you across the car park. Can Bobby read? Does he understand words even? Words there never gonna hurt him are they
+
+Yawn- yawn
+
+Dave- no wait, they where obviously educated as far as nursery school.
+
+Paul- The entry from 'uknown' has said 'I have known tVC for many years and believe they can be very violent' I feel that I have to refute this 'flame' from someone who claims to know us but refuses to identify themselves. tVC are not violent and are refusing to be tarred with this brush. The tactics of the entries on this board seem to be that of false accusation in order to vindicate violent behaviour by others. (‘Oh well they are violent anyway so Bobby was justified in being violent to them’). This is wrong. I would like this person uknown to justify this comment either by outlining their evidence or contacting us at tvc@www.com or withdraw it.
+
+Unknown- Would you please give us all a break! We are all bored rigid now of this incessant going on about NYE. Look we all appreciate what you must be going through but PLEASE sort it out amongst yourselves and stop involving everyone! My new years resolution was not to get involved in other peoples crapp and yet every time I visit this site there you are STILL going on about it, c'mon you know you have it in you to resolve this amicably and peacefully, without dragging us into it. I have remained anonymous because I don’t want to talk to you about this as I have better things to do. Will your reply to this be equally as rude as some of those you have posted on the previous messages? (Probably!)
+
+Take care Steve and I’ll speak to you soon.
+
+Letter 04 
+
+April23rd 2002
+
+Now then,
+
+Louie and Josephine are about to have a baby. Louie is playing the proud father to be with great aplomb. Scoring loads of his favourite and disappearing all weekend. Nah – not really. Well, once in a while. Maybe.
+
+Josephine is madly pregnant and insists on working all hours in the café, between bouts on tears. Nick says it’s driving her mad. What with Josephine, her mum, Jo and Jeanie all talking about babies ALL the time…
+
+Nick’s face got splashed with fat from the frying pan at work and she’s now walking around with these massive scabs on her face where the blister has healed and she’s plucked the scabs off.
+
+Out and about in Whitstable on our night off last Saturday. The first Saturday for five weeks where I haven’t had to put up with organising a party and the great bugbear of the sound system scene, humping gear around. I could go out later and come home earlier; if I wanted to. Luxury.
+
+First stop, after a nice Spanish omelette and salad with a bottle of red, the offy to stock up on flavoured vodka, real lemonade, fags, lighter nuts and crisps. Then off round Steve and Emily’s for some hip-hop greenery and a few cocktails. Obviously after we arrived we went nowhere else. (Later we’d got an answer phone message from Julia, round at Rosie’s for a meal, ‘come on round for a smoke’. We politely ignored the message after ringing up and saying we’d be right round; before having an early night.)
+
+Obviously a little livened and after playing with Steve’s mini table football and racing the clockwork snails for a while the chess board came out and a game between Steve and his mate Raj began. Nick and Ems talking manically between the boys about the cream that is prescribed to pregnant women that goes on the area between the anus and vagina. What is that area called? Nick was talking to Jeanie at work and, when she had had her baby, hadn’t ’used’ the cream and regretted it later. Josephine of course who also hasn’t used her cream was hastily advised by Jeanie to get a move on and start using! ‘Emily’ says Nick, ‘Did you use your cream when you were pregnant?’ ‘I did but I don’t think it made any difference. I still split like a watermelon.’ The boys face remains impassive as they concentrate on their game too wazzed to reply.
+
+Found out Raj is a horologist, he makes watches, for a living. Works for Rolex and wears a 3,600 pound watch which looks quite cool but; (shouts) three thousand six hundred fucking pounds?
+
+But then again everyone likes a good watch. Don’t they?
+
+Which reminds me of another Whitstable story. Steve and the his mates Del, Matt the Scratcher and Matt’s driver ‘Gopher’ have got a little crew together and call themselves Subway Sounds and they have started playing regularly done at the Sardine, sorry, the Fountain. It’s all nip round to Dells for a quick one then back round the pub and letting it rip. This had been going on most of the evening and as the punters were getting more lashed up the boys were giving it a bit more welly and everything was going well.
+
+Then Nick, who had been quite ill with food poisoning and had been groaning all night and hadn’t drank anything and was a little wary of the pub coz Fat Geordie Tracey had punched her five times in the face last time she was in here and was now standing at the other end of the pub glowering at Nick all pregnant like, came up beside me. Probably to say lets go home now. Instead she rested her foot on a plug coming out of the wall and all the sound and lights went off in the pub. Everyone was ‘way-hey’ing like mad and ‘sort it out’ and all the usual shouts were breaking out. Nick didn’t even realise it was her that had done it. It took a couple of minutes to realise it was the plug and poor Nick nearly fainted with embarrassment. We later heard a rumour that was going round that tVC had come to the gig and ‘sabotaged’ it. Coz they were jealous.
+
+Another reputation richly deserved.
+
+Late April and the Fountain has burnt down! An electrical fault behind the till. There’s a gig in support of the pub at Tea and Times on sat april 27th. It’s a fiver to get. Will let you know what happens if I can blag the guest list of Steve subway.
+
+Oh yeah, caught your 8 pager when I was round steve and ems the other night. Giid to see you coping well considering the circumstances. Your mention of Ed reminded me that I saw him in London the other week at the KAT and Digs&Woosh gig at Jax. He wasn’t talking about you but nick and Emily were getting a few digs in about his ’bought’ bride and ‘what about our stevie’. The baby is due soon.
+
+Good to here that Barn came for a visit. He’s back in the UK now. Saw him as he walked past the harbour street café the other day with Ria. He looked well paranoid. So no change there then! Good to here that you’d had a few visits from people though.
+
+Here is a message from someone who responded to the ‘write to Steve plea’ on our website:
+
+Date: Sun, 3 Feb 2002 17:51:20 -0800 (PST) From: jim howard <canterburyufo@yahoo.com> Subject: pass this onto steve for me please To: tvc@www.com
+
+keep your spirit as high as you can in this bad time.i hope things get sorted as quick as possible. i don'tknow who you are, but i heard about what has happened.i always check out the tvc website- me and my buddyusually cycle out there in those warm summer nightsfor some deep house.we are thinking of you mate, as imsure a hell of a lot of other people are. good luck,i was over in thailand last year, i went to suratthani, and on to koh phagnan- where i guess yourtroubles started. youll be ok man. take care,jimcanterburyufo@yahoo.com
+
+Nick turned the TV chef Jamie Oliver’s tongue yellow when she prepared a meal ordered by his publicists who were meeting him at their house in Whitstable. She did Moroccan harrira soup which is flavoured with turmeric. He said the soup was ‘pukka’ as he helped himself to several portions.
+
+Timo becomes a fully fledged worker as he is now an earning quantity surveyor. What with a nice new house in Dover, with mortgage to match, and a nearly brand new VW Passat to him name, he’s laughing.Time for a little holiday. A snowboarding holiday in the French Alps. How to get there? Why, drive of course, in the Passat. What with Jes, Laurie and Adam in to fill the seats and to party on down with once they got there, what could possibly go wrong?
+
+It’s a long drive to the resort and after several piss stops too many the lads soon tire of jumping into verges and dodging behind bushes.
+
+After one such rushed stop the lads are driving along quite happy when Timo starts sniffing the air. ‘OK, who’s stepped in some shit?’ says our man. Everyone checks their shoes and it’s Laurie who sheepishly admits the offence. Not only is it on his shoe it’s on the side on his trousers, the floor of Timo’s new car, the seat where Laurie was sitting and the back of the seat of the front passenger. So they stop. And clean up. Timo ain’t too pleased, but hey, says nothing. Thing’s like that happen. Let’s get on with the journey.
+
+Who wants some chocolate? Me, says Laurie and gets a big chunk of toblerone which he sticks down between his legs (doh!) where it promptly melts all over his trousers, timos back seat, the floor. Timo decides to go ballistic. Chill out maan! Says Laurie.
+
+I suppose it’s my fault now, says timo.
+
+Louie and Josephine have had there baby – Eva is the initial name they have chosen. I get Louie coming round mine quite a bit as he gets away from Josie and the baby. 
+
+Ta ta for now Steve,
+
+Keep your pecker up and I’ll write to you again next week!!
+
+Hope you got the tape I enclosed?
+
+Oz

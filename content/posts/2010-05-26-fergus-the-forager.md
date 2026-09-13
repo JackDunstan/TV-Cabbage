@@ -1,0 +1,20 @@
+# Fergus The Forager
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2010-05-26T16:14:00.000+01:00`
+- Original URL: https://www.tvcabbage.co.uk/2010/05/fergus-forager.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+Been exchanging a series of emails with T. Been getting on a lot better lately. See, it’s alright having ‘a new boyfriend’ but as she says herself ‘you got to have something to talk about after’.
+
+Unfortunately he gets, or rather got the sex, whereas I just get, or rather am pleased to get, the talking, supporting, listening friend role in this entire little scenario. Do I get the better deal? I think so. I do so. Now he's no longer on the scene. She was very keen to know if I was going to the 'big chill' this year. I told her I am. She said that as the sale on her 1st house was going through (more on this later) she’d have her garden to grow plants and funny shaped vegetable in and not have to bother about having a love life. Bless. She’s still in recovery after dumping Jay. He gave her a real hard time when he came to pick up his possessions from her flat on Sunday. She was supposed to be meeting me down the beach for a drink but ended up having a 6 hour hard time off J who, she says, gave her a blow by blow account of why her personality needed assassinating.
+
+Spent some pleasant time with Aurelia and Jenny the other night sharing some nice food. At the end of the month Jenny and I have arranged to spend the day with John and Jayne mucking around on their boat and having a picnic. Or so I thought. She’s already talking about ‘having some mushrooms’ and ‘painting me all day’ as well as staying the night at J&J’s. ‘There’s nothing wrong with lying naked in bed together and seeing what happens; is there?’ she says. I can see the Julia thing happening all over again here. Sleeping with long term female friends is not to be recommended I would say. Especially if you’re in a drugged up state of mind.
+
+Anyway, with Aurelia I told her I was still seeing Sarah on and off occasionally. She was pretty cool about it and I got the commission for her brother’s website off her. He’s a guy called Fergus the Forager and does just that; forage woods for foodstuffs. He wanted his website changed and up by Tuesday night gone. This was because of his imminent TV appearance on the ‘The Urban Chef’ (BBC2 6.30, weekdays). This is a show about a London chef who is trying to source all his produce from within London for the restaurant he is about to open; the snag? Everywhere has to be reachable by the tube network. He decides to forage in the woods for food. He ‘researches’ on the internet and finds Fergus. Despite his website being crap he got the call, was dumped in some woods with a film crew and told to ‘forage’. He actually found fuck all but that’s by the way but what he did fine he made wild mushroom bruschetta from it. It spurred him on. He wants his website sorted out. Its www.wildmanwildfood.com. Only we can’t get access to it. The guy who looks after it now can't remember the username or password. Doh! I suggested we just scrap that and go for www.fergustheforager.com. He said the picture on the front page makes him look like a looney and has a big bit of 'snot' right over his face. Still waiting back for that one.
+
+Sarah has 2 small children and has just come out of the other side of a messy custody/access court battle. She lives in a battered women’s refuge in Sittingbourne. We’ve been seeing each other for nearly 6 months. On and off. Sometimes only once a fortnight. On Sunday she has arranged a day out with me ‘and the girls’. It’ll be the first time I’ve met them; and I’m dead nervous. I've got a barbeque to go to tonight and am providing a rig and DJing at a house party on Saturday. The BBQ is for Scouse Steve. The host wants us all to wear 'scouse wigs and 'taches'. Must not have a late one. Repeat, must not have a late one.

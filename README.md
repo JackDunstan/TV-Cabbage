@@ -1,54 +1,68 @@
 # TV Cabbage archive
 
-A source-led repository for preserving and rebuilding the former `tvcabbage.co.uk` website.
+This is a closed preservation repository containing material recovered from the former TV Cabbage publications at `tvcabbage.blogspot.com` and `tvcabbage.co.uk`.
 
-## What is verified
+No further collection, reconstruction, maintenance, or development is planned by the repository holder. The files are retained in their current state so that the material remains findable and recoverable by its rights holder.
 
-The Internet Archive records 71 captures of the homepage between 22 May 2017 and 3 January 2026. The latest successfully inspected HTML identifies the site as a Blogger publication:
+## Purpose
 
-- Title: **TV Cabbage**
-- Description: `tVC Sound System provide free parties, playing deep dubbed out house and techno music, to the people of east Kent...`
-- Platform: Blogger
-- Template: Blogger Dynamic Views
-- Initial view: `timeslide`
-- Layout: 960px content frame with a 310px right rail
-- Canonical URL: `http://www.tvcabbage.co.uk/`
+This repository is not presented as a new publication, authorised edition, or commercial use of TV Cabbage. It exists only as a preservation copy and discovery aid for content that was publicly available through Blogger and the Internet Archive.
 
-The archived HTML is structurally sparse because Blogger Dynamic Views populated the page with client-side requests. Missing post text, media, and navigation labels are therefore marked as unknown instead of being invented.
+The repository holder does **not** assert copyright ownership over the archived posts, comments, names, artwork, photographs, recordings, or other source material. Copyright and all related rights remain with their respective authors and rights holders. Inclusion here does not grant a licence to reuse third-party material.
 
-## Repository layout
+A rights holder wishing to identify or recover material can use the source URLs and provenance records included with each post. A rights holder may also request correction, attribution, transfer, or removal through the repository's normal contact or issue channel.
 
-- [`content/homepage.md`](content/homepage.md): verified homepage transcription and observations.
-- [`content/posts/`](content/posts/): 25 readable posts recovered from the archived Atom feed.
-- [`data/archive-manifest.json`](data/archive-manifest.json): capture provenance and known archive endpoints.
-- [`docs/information-architecture.md`](docs/information-architecture.md): reconstructed content model and navigation hypotheses.
-- [`prompts/rebuild-website.md`](prompts/rebuild-website.md): prompts for rebuilding the site in stages.
-- [`scripts/collect-wayback.sh`](scripts/collect-wayback.sh): repeatable CDX collection script for when the archive is available.
+## What is included
 
-## GitHub Pages publication
+The repository currently contains:
 
-The publishable site lives in [`docs/index.html`](docs/index.html). A public route directory is available at [`docs/page-list.html`](docs/page-list.html). The archive presentation uses the password `tvcabbage`.
+- **531 readable post records** represented as Markdown source records and generated HTML pages.
+- **101 posts** exposed by the earlier TV Cabbage Blogspot feed, published between 12 January 2005 and 10 September 2007.
+- **430 post records** exposed by the later `tvcabbage.co.uk` Blogger feed. This set includes the 25 records originally recovered from an archived Atom feed.
+- **One surviving public reader comment**, linked to its source post.
+- A Wayback CDX inventory containing **535 HTML records across 531 unique URL paths**, including **430 article-like paths**.
+- Public Blogger feed snapshots, a mobile-homepage snapshot, the recovered favicon, archive metadata, source URLs, timestamps, and evidence labels.
+- A static browsing copy under [`docs/`](docs/) and repeatable import/build scripts under [`scripts/`](scripts/).
 
-GitHub Pages is a static host and cannot provide real password protection. The gate is client-side presentation access only; source files, JavaScript, and the CDX data remain publicly fetchable. Do not put private or sensitive material in this repository.
+Some of the 531 records may be migrated or republished versions of earlier posts. Six exact-body duplicate groups covering 12 records were identified, but these have not been manually resolved into aliases. They remain separate source records so no evidence is discarded.
 
-## Research source
+## What is not included
 
-Primary source: [Wayback Machine wildcard](https://web.archive.org/web/20260000000000*/http://www.tvcabbage.co.uk/)
+This is not a complete reproduction of either historical website. It does not include, except where a source snapshot happens to contain them:
 
-The source URL is retained exactly as supplied because it is part of the provenance. Do not treat the proposed IA as a complete historical crawl until the URL inventory has been collected and reviewed.
+- Most original photographs, flyers, illustrations, avatars, or other image assets.
+- Audio, DJ mixes, video, downloadable files, or externally hosted embeds.
+- Comments other than the single comment still exposed by the public comments feed.
+- Deleted, private, draft, unindexed, or feed-excluded posts.
+- Material from captures or backups that were never publicly indexed.
+- The complete historical Blogger theme, client-side Dynamic Views behaviour, widgets, navigation state, analytics, or interactive services.
+- Reliable category or label data where the surviving feeds did not expose it.
+- Manual resolution of reposts, changed publication dates, aliases, broken external links, or conflicting metadata.
 
-## Suggested next collection pass
+Additional material may still exist in Blogger account exports, the Internet Archive, search-engine caches, personal backups, old computers or drives, email attachments, social-media accounts, hosting accounts, or copies held by authors, photographers, contributors, event organisers, and readers. This repository makes no claim that such material has been exhausted or that the present collection is definitive.
 
-```sh
-./scripts/collect-wayback.sh
-```
+## Provenance
 
-The script writes a raw CDX JSON response to `data/wayback-cdx.json`. Review each discovered URL, then add page or post transcriptions under `content/` with its capture timestamp and source URL.
+Every readable record retains its original or archived source URL and an evidence label. The principal source sets are:
 
-## Rebuild principles
+- The public feed for the earlier `tvcabbage.blogspot.com` publication.
+- The public Blogger feed associated with the later `tvcabbage.co.uk` publication.
+- [Internet Archive captures of `tvcabbage.co.uk`](https://web.archive.org/web/20260000000000*/http://www.tvcabbage.co.uk/).
 
-1. Preserve the archive's language and uncertainty.
-2. Keep source captures separate from reconstructed presentation.
-3. Recreate the publication's music and free-party context without inventing event dates or artist information.
-4. Prefer a searchable chronological archive plus category/label navigation over a generic marketing homepage.
-5. Keep media rights and provenance attached to every imported asset.
+Detailed provenance is recorded in [`data/archive-manifest.json`](data/archive-manifest.json), while [`content/source-site.md`](content/source-site.md) describes the earlier Blogspot publication.
+
+## Repository map
+
+- [`content/posts/`](content/posts/): readable post records.
+- [`content/posts/index.json`](content/posts/index.json): merged 531-record post index.
+- [`content/comments/index.json`](content/comments/index.json): the surviving comment record.
+- [`data/archive-manifest.json`](data/archive-manifest.json): sources, collection dates, and archive scope.
+- [`data/duplicate-candidates.json`](data/duplicate-candidates.json): unresolved exact-body duplicate groups.
+- [`docs/`](docs/): generated static browsing copy.
+- [`scripts/`](scripts/): preservation and build utilities retained for reproducibility.
+
+## Status
+
+**Archival work has ended.** The repository is preserved as-is. Its remaining scripts, queue, and TODO records document how the collection was produced and what remained unresolved; they are not a commitment to further work.
+
+The static site's password prompt is only a client-side presentation gate. It is not security, and all committed source material remains publicly accessible.

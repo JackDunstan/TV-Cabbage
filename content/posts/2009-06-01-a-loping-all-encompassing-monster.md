@@ -1,0 +1,44 @@
+# a loping all encompassing monster
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2009-06-01T11:34:00.000+01:00`
+- Original URL: https://www.tvcabbage.co.uk/2009/06/loping-all-encompassing-monster.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+What a fucking weekend. A series of highs and lows never experienced since, ooh, last weekend. Why can’t I find some sort of stability in my life? I seem detached and aware that I’m leaving the magnetic pull of a group I so loved and respected but now only have ambivalence towards.
+
+Trying to organise a bloody pub gig was like trying to split the atom. As MDM said “we must be able to bloody organise a gig down the fucking pub. We’ve done it 10,000 times and each time it’s a bloody nightmare”. And it is.
+
+Charles was ignoring me again. He has most of the tVC rig down his place. I’ve found him nearly a grand’s worth of work in the past 6 months but still our rig is not repaired. He wants £450. Immediately to repair the tops. One of the drivers was ripped by this guy James, who MDM had convinced himself that he was a “genuine bloke”. I thought he was a bit of twat, and said so, but MDM stuck by him till the night at a “Moulin Rouge” party. James, the coked up twat, decided to go postal and punch MDM a few time whilst he was DJing. He then went outside and was brandishing a piece of 4x2 threatening MDM with imminent death. MDM went outside and gave the poor twat a bit of a hiding. He’s so strong he is. He doesn’t know his own strength.
+
+Anyway, that’s why one of the top main mid drivers is out of action becasue James put the light inside the speaker on top of the driver and we’re looking at 300 sobs to get that repaired. Plus a few of the high ends are fucked. Aah. I can’t arsed. But, MDM has offered to go halves. Which is nice. Maybe we'll get the rig up and running by the summer party in Provance.
+
+Good news from Fitzy in that we’re going to do a joint party in Provance again this year. Should be good. Can’t talk more about it till the Fitz has finished reporting on CBB for the website. Busy girl. Hopefully we'll include the Soulful Sessions, Kerfuffle, Sizzle, Peg and tVC DJ's in all this abroad stuff. Which is nice.
+
+So Charles ignored me all weekend. Only coz he knows I’m trying to blag his rig for another free gig. In the end we borrowed some of the Soulful Sessions boys’ kit. Not the greatest sound in the world but they saved our sorry arsed, slacker skins from imminent failure. In the end the gig was a lovely little affair and a real chilled out audience appreciated the nice soulful house music. After went to Bean’s gaff. She’s a cracker. J hates her which means I like her! Another independent, smart woman who knows her mind. My mate SS likes her a lot. We had a great night out clubbing in London together; getting twatted and having a laugh. We stayed up all night having a laugh, listening to music. CJ was there. Stitched himself up on MDMA then proceeded to tell me my ex, NJW, was still in town living in her van with the guy she ran away with. He said she was asking after me and then burst into tears. Good to see SAP too. Ain’t been out for a long while them two. Just finished their extension on their house. Good people. I love them.
+
+On the woman front I “caught up” with T and R on what used to be for me some lovely beautiful walks with some gorgeous friends. Now they are a nightmare of avoiding hatred stares from the witches of twatsville. God, I’m beginning to hate those 2 a bit. T was more sniffy and aloof than usual and I could see it really pained her to even talk to me. I think mentally and socially she's a little inadequate to. I bitterly regret that I ever got sexually involved with her. A man can only tolerate the brush off for so long before they just give up. I have offered her the hand of friendship but when trying to organise things with her or even co-ordinate weekend timetables she's very evasive and secretive. This usually ends up with her turning up to things I’ve arranged with chums and other friends. Much to my consternation and annoyance. Why can't she stick to her own social circle? Why does she have to continually intrude upon my life? I feel as if I've been used by this woman, both sexually and socially and now this great lumping nemesis is continually on my back. How can I get rid of her? I can't I know. need to up the old tolerance levels another notch.
+
+But I digress; as I see it, J&E are my friends and I’ve been friends with them long before T ever met them. And if she wants to hang out with them she’s gonna have to get used to the fact that I’m going to be there and around them more than she is. I'm going to have to avoid avoiding if you know what I mean.
+
+Had what we call the Challock walk today with a bunch of lovely chums. Was only marred by T who blanked me most of the day. Oh, bugger her. I ain't focusing on her anymore let alone writing about her.
+
+J. oh fuck. Got a demand for money off her last week for the holiday we went on for her birthday. I do owe her the money and am paying her back today but only because I’ve just been paid. This woman is the craziest mother fucker I have EVER met in my life. Loco loco. Talking to the lovely H she said oh don’t worry about her not speaking to you for a month; once she never spoke to me for 4 months. What was that
+
+disagreement about I asked. Oh, she replied, nothing. A slight disagreement about something. That’s what J is like though. Real or perceived slights to her are punished with a severity so strong you are left in no doubt that you don’t mess with this crazy mutherfucker. Ever. Sad I know. But then again I still love her for some crazy fucking reason. What a stupid fucking twat I am for feeling like that but i do feel an antipathy with her. Still have time and friendship for her. If she wants it. The promiscuous, lying bullshitter that she is! Thank god she never reads this or she won't be speaking to me for years!
+
+R is still ignoring me but hey I fucking can’t be arsed with her sorry arsed immature school playground tactics. She’s an emotional retard and I’m increasingly becoming distanced from her. Shame, coz when she was still a worse retard than she is now and had no friends it was the tVC people who took her on and gave her a grounding in socialising and tolerance but she seems to have forgotten all that and as she slowly poisons my ex girlf towards me all I can do is stand back and think that what she is unconsciously doing is ostracising herself from the very heart of her own social life. Only time will tell if I can reconcile and move forward. i still hold out hope but she's a stubborn fucker that only time will melt.
+
+Meanwhile I’m still working up the University on dyslexia support and my students continue to not attend tutorials. I feel like I’m wasting my time here sometimes. But hey, the moneys good. It's the boss who is a fucking bitch (hey! it's J if you hadn't guessed. Don't fuck your boss or fuck with your boss would be my advice) and everyone is scared of her coz she exhibits such irrational behaviour.
+
+Thinking of applying for the SkillsPlus manager’s job in Sheppey. At 30K a year the money is a bit better than what I earn now so I think I’m going for it. May mean buying a little flat on the island but I think I'd like to do that!
+
+Seeing the lovely S tonight. We’re going to have a beer down the Blue Anchor, then I’m going to cook her some lovely food and we got a few good films to watch. Aah. “Domestic bliss” of a sort but don’t be deceived by the relative simplicity of this part of my life it’s just as crazy as I think it is. Her ex is a Irishman, as wide as he tall. a Walter Mitty character, says S. stole loads of money off all their friends. A domineering, emotional bully. S is well pissed off with him and hates to be dominated in any way. Which suits me.
+
+Later today I’m dropping of J’s money in the form of a cheque, minus the money she should have paid me for the dirty weekend in Biarritz that she cancelled at the last minute because her 15 year old daughter had been raped. A sad state of affairs indeed that has already made a crazy woman step over the edge. It greatly pains me but I feel so for her and feel so close to her. Yet her misogyny, bad as it was before, is now a loping all encompassing monster she has sacrificed our relationship on. Her daughter raped by a fuck wit in a club who still remains at large. 
+
+Police incompetence ensures that. But I'm sure if little R has half of her mother's spirit and determination she'll survive this experience with a renewed strength in her misogynistic distrustful behaviour towards men. All passed on to her by her ever loving mum.

@@ -1,0 +1,12 @@
+# SOUTHERN EXPOSURE - FRIDAY 3rd FEBRUARY
+
+> Imported from the public TV Cabbage Blogspot feed.
+
+- Published: `2010-02-03T19:53:00.000+00:00`
+- Original URL: https://www.tvcabbage.co.uk/2010/02/southern-exposure-friday-3rd-february.html
+- Source: https://www.blogger.com/feeds/8764520575762950118/posts/default?alt=json&max-results=500
+- Evidence: `source-derived`
+
+---
+
+The vibe was really nice upstairs. We think it was all the misfits who couldn't fit in downstairs.Despite being promised that we could use our love-core sensual-a-round-a-sound PA, a call late on gig night gave us the sad news that the in-house rig had to be used. Oh well, always a crew to rise to a challenge (plus more money for the DJ's) we gamefully dived in there and got the insense burning whilst Nick Brown and his chums got the shake 'n' vac out (it aint all International jet-setting ya know.) So with the room smelling nice, a brand new, just out the package, set of 1200's, a new mixer in place and a free crate of beer guzzled, the night was off.Oz was first on the decks (as usual) and played a fucking blinding two and a half hour set of brand new tunes, superbly mixed to Sara, Austin and Nick. At 11 a few of the tVC pop stars deigned to turn up, but all wanted to "play late" (pout, pout). We didn't tell them all the beer had gone. Taking our cue from the guy who promotes High Spirits and who called us "the DiY of the South" (don't, ever, call us that again. Ok?) we put Tom and Kier and Ed on last. Tejen, as usual, was good (fluffy) for the first half of his set and shit (hard) for the second half. Kier and Tom, headlining, chugged away merrily in their, now expected seamless way. Leila danced with appreciative joy. Ed's set was much more up and positive. A better set, with vocals. Ed, playing vocals? Farkin' soo-perb. Groovy, bass-line led sumptiousness. Nice one mate! Sue and Martyn "chose" tonight to tell all they were running away to France. How romantic. There was only one problem as far as tVC were concerned and that is; he's our fucking sound-man. He was. Don't worry though, we'll survive. As I'm sure S & M will, see ya in a couple of weeks. You all know Maurice the Magnificent - he'll be doing the honours at 7th Heave-ons from now on, and for the parties something will be sorted. Welcome to the team. All set for the summer of laugh? Damn right we are. Can't wait for that first open air sunrise set!
